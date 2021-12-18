@@ -1,5 +1,5 @@
 ---
-title: About
+title: Opportunities
 aside: false
 ---
 
