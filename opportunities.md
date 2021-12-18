@@ -19,7 +19,7 @@ University of Virginia
 [University of Washington](http://depts.washington.edu/psychres/wordpress/perinatal-psychiatry-pathway/)\
 [University of Pittsburgh](https://www.psychiatry.pitt.edu/educationtraining/residency-fellowships/training-pathways-initiatives/womens-mental-health-area)\
 [University of Illinois, Chicago](https://www.psych.uic.edu/education/general-psychiatry-residency/subspecialty-training/womens-mental-health)\
-[Stanford University](https://med.stanford.edu/psychiatry/residents/learn.html#pathways)\
+[Stanford University (see 'Pathways')](https://med.stanford.edu/psychiatry/residents/learn.html#pathways)\
 [UTSW](https://www.utsouthwestern.edu/education/medical-school/departments/psychiatry/education-and-training/residency-program/wmh-concentration.html)\
 [UCSF (see 'Areas of Distinction')](https://psychiatry.ucsf.edu/rtp/highlights)
 
