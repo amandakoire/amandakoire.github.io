@@ -4,7 +4,7 @@ InfantRisk- one-time $10 fee
 
 Self-guided training:\
 National Curriculum in Reproductive Psychiatry- modules are free but must [register](https://ncrptraining.org/learning-modules/ ) an account\
-MGH Center for Women’s Mental Health [‘Essential Reads’](https://womensmentalhealth.org/blog/essential-reads/)\
+MGH Center for Women’s Mental Health [‘Essential Reads’](https://womensmentalhealth.org/blog/essential-reads/)
 
 Podcasts:\
 Psychopharmacology Institute free lectures (brief, good for commuting):\
@@ -19,7 +19,7 @@ Psychopharmacology Institute free lectures (brief, good for commuting):\
 ['Postpartum psychosis clinical considerations'](https://psychopharmacologyinstitute.com/section/postpartum-psychosis-clinical-considerations-2541-4789)\
 ['Treatment strategies for postpartum bipolar disorder and psychosis'](https://psychopharmacologyinstitute.com/section/treatment-strategies-for-postpartum-bipolar-disorder-and-psychosis-2541-4790)\
 ['Assessing perimenopausal depression in clinical practice'](https://psychopharmacologyinstitute.com/section/assessing-perimenopausal-depression-in-clinical-practice-2493-4844)\
-['Treatment of perimenopausal depression'](https://psychopharmacologyinstitute.com/section/treatment-of-perimenopausal-depression-2493-4845)\
+['Treatment of perimenopausal depression'](https://psychopharmacologyinstitute.com/section/treatment-of-perimenopausal-depression-2493-4845)
 
 High-Yield Newsletters:\
 [Subscribe](https://womensmentalhealth.org/subscribe/) to MGH Center for Women’s Mental Health newsletters\
@@ -30,7 +30,7 @@ Clinical Rounds:\
 [Register](https://womensmentalhealth.org/educational-programs/virtual-rounds-at-the-cwmh/) for MGH Center for Women’s Mental Health Virtual Rounds\
 
 Journal Clubs:\
-Please contact repropsychres@gmail.com if you are interested in being connected to join the Mt. Sinai Reproductive Psychiatry Journal Club (meets monthly)\
+Please contact repropsychres@gmail.com if you are interested in being connected to join the Mt. Sinai Reproductive Psychiatry Journal Club (meets monthly)
 
 National Organizations:\
 [Marce of North America (MONA)](https://marcenortham.com/)\
