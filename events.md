@@ -1,1 +1,4 @@
-events page
+---
+title: Events
+aside: false
+---
