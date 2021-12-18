@@ -33,7 +33,7 @@ Psychopharmacology Institute free lectures (brief, good for commuting):
 
 ['Postpartum psychosis clinical considerations'](https://psychopharmacologyinstitute.com/section/postpartum-psychosis-clinical-considerations-2541-4789)
 
-https://psychopharmacologyinstitute.com/section/treatment-strategies-for-postpartum-bipolar-disorder-and-psychosis-2541-4790
+['Treatment strategies for postpartum bipolar disorder and psychosis'](https://psychopharmacologyinstitute.com/section/treatment-strategies-for-postpartum-bipolar-disorder-and-psychosis-2541-4790)
 
 ['Assessing perimenopausal depression in clinical practice'](https://psychopharmacologyinstitute.com/section/assessing-perimenopausal-depression-in-clinical-practice-2493-4844)
 
