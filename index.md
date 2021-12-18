@@ -1,9 +1,9 @@
 ---
-title: Reproductive Psychiatry Trainee Group
+title: 
 feature_image: "https://picsum.photos/1300/400?image=989"
 feature_text: |
-  ## Welcome!
+  ## Reproductive Psychiatry Trainee Interest Group
 aside: true
 ---
 
-Website dedicated for budding reproductive psychiatrists
+Join [here](https://forms.gle/Ue76URFWoJv7R3ek8)
