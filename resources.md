@@ -1,11 +1,10 @@
 Apps:
-Reprotox- FREE for trainees, register here: https://www.reprotox.org/join#prop-2
+Reprotox- FREE for trainees, register [here](https://www.reprotox.org/join#prop-2)
 InfantRisk- one-time $10 fee
 
 Self-guided training:
-National Curriculum in Reproductive Psychiatry- modules are free but must create an free account/login
-https://ncrptraining.org/learning-modules/ 
-MGH Center for Women’s Mental Health ‘Essential Reads’- https://womensmentalhealth.org/blog/essential-reads/ 
+National Curriculum in Reproductive Psychiatry- modules are free but must [register](https://ncrptraining.org/learning-modules/ ) an account
+MGH Center for Women’s Mental Health [‘Essential Reads’](https://womensmentalhealth.org/blog/essential-reads/) 
 
 Podcasts:
 Psychopharmacology Institute free lectures (brief, good for commuting):
@@ -25,17 +24,17 @@ https://psychopharmacologyinstitute.com/section/assessing-perimenopausal-depress
 https://psychopharmacologyinstitute.com/section/treatment-of-perimenopausal-depression-2493-4845
 
 High-Yield Newsletters:
-Subscribe to MGH Center for Women’s Mental Health newsletters: https://womensmentalhealth.org/subscribe/
-Maternal Mental Health Leadership Alliance (MMHLA) newsletters: https://www.mmhla.org/mmhla-newsletters/
-The Carlat Report— online version is free for trainees, contact 	info@thecarlatreport.com to request access. 
+[Subscribe](https://womensmentalhealth.org/subscribe/) to MGH Center for Women’s Mental Health newsletters
+[Subscribe](https://www.mmhla.org/mmhla-newsletters/) to Maternal Mental Health Leadership Alliance (MMHLA) newsletters
+The Carlat Report (online-only version) is free for trainees, contact info@thecarlatreport.com to request access. 
 
 Clinical Rounds:
-Register for MGH Center for Women’s Mental Health Virtual Rounds: https://womensmentalhealth.org/educational-programs/virtual-rounds-at-the-cwmh/
+[Register](https://womensmentalhealth.org/educational-programs/virtual-rounds-at-the-cwmh/) for MGH Center for Women’s Mental Health Virtual Rounds
 
 Journal Clubs:
 Please contact repropsychres@gmail.com if you are interested in being connected to join the Mt. Sinai Reproductive Psychiatry Journal Club (meets monthly).
 
 National Organizations:
-Marce of North America (MONA): https://marcenortham.com/ 
-Postpartum Support International: https://www.postpartum.net/ 
-Maternal Mental Health Leadership Alliance (MMHLA):  www.mmhla.org
+[Marce of North America (MONA)](https://marcenortham.com/)
+[Postpartum Support International](https://www.postpartum.net/)
+[Maternal Mental Health Leadership Alliance (MMHLA)](www.mmhla.org)
