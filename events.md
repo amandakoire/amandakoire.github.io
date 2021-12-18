@@ -19,12 +19,12 @@ Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **J
 **April**
 
 **May**\
-Lecture: Dr. Shari Lusskin, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 1)”, May 10, 6:30 PM EST
+Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, **“Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 1)”**, **May 10 at 6:30 PM EST**
 
 **June**
 
 **July**\
-Lecture: Dr. Shari Lusskin, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 2)”, July 26, 6:30 PM EST
+Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, **“Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 2)”**, **July 26 at 6:30 PM EST**
 
 **August**
 
