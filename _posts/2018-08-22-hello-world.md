@@ -12,3 +12,6 @@ This group aims to provide some fun and engagement in topics around perinatal an
 We would love to start out with a Meet and Greet for those of you who are interested in being on the planning committee. Bring your favorite cocktail or mocktail (Amanda's holiday favorite is Trader Joe's Ginger Brew) and join us virtually on Dec 21 at 8 PM EST/5 PM PST.
 
 If you are interested in joining and have not already received the event information, please email repropsychres@gmail.com for the zoom link and passcode! 
+
+Best,
+Amanda and Reid
