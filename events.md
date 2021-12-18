@@ -15,7 +15,7 @@ Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **J
 **February**
 
 **March**\
-Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, ‘Perinatal Cannabis Use’, **Date and time TBD**
+Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, ‘Perinatal Cannabis Use’, **March 24 at 4pm EST**
 
 **April**\
 Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education,  ‘PMDD’ , **April 12 at 12pm EST**
