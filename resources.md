@@ -24,10 +24,10 @@ Psychopharmacology Institute free lectures (brief, good for commuting):\
 High-Yield Newsletters:\
 [Subscribe](https://womensmentalhealth.org/subscribe/) to MGH Center for Women’s Mental Health newsletters\
 [Subscribe](https://www.mmhla.org/mmhla-newsletters/) to Maternal Mental Health Leadership Alliance (MMHLA) newsletters\
-The Carlat Report (online-only version) is free for trainees, contact info@thecarlatreport.com to request access\
+The Carlat Report (online-only version) is free for trainees, contact info@thecarlatreport.com to request access
 
 Clinical Rounds:\
-[Register](https://womensmentalhealth.org/educational-programs/virtual-rounds-at-the-cwmh/) for MGH Center for Women’s Mental Health Virtual Rounds\
+[Register](https://womensmentalhealth.org/educational-programs/virtual-rounds-at-the-cwmh/) for MGH Center for Women’s Mental Health Virtual Rounds
 
 Journal Clubs:\
 Please contact repropsychres@gmail.com if you are interested in being connected to join the Mt. Sinai Reproductive Psychiatry Journal Club (meets monthly)
@@ -35,4 +35,4 @@ Please contact repropsychres@gmail.com if you are interested in being connected 
 National Organizations:\
 [Marce of North America (MONA)](https://marcenortham.com/)\
 [Postpartum Support International](https://www.postpartum.net/)\
-[Maternal Mental Health Leadership Alliance (MMHLA)](www.mmhla.org)\
+[Maternal Mental Health Leadership Alliance (MMHLA)](www.mmhla.org)
