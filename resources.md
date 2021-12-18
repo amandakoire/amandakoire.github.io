@@ -1,3 +1,7 @@
+---
+title: Resources
+aside: false
+---
 **Apps:**\
 Reprotox- FREE for trainees, register [here](https://www.reprotox.org/join#prop-2)\
 InfantRisk- one-time $10 fee
