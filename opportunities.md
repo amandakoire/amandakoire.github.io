@@ -21,7 +21,8 @@ University of Virginia
 [University of Illinois, Chicago](https://www.psych.uic.edu/education/general-psychiatry-residency/subspecialty-training/womens-mental-health)\
 [Stanford University (see 'Pathways')](https://med.stanford.edu/psychiatry/residents/learn.html#pathways)\
 [UTSW](https://www.utsouthwestern.edu/education/medical-school/departments/psychiatry/education-and-training/residency-program/wmh-concentration.html)\
-[UCSF (see 'Areas of Distinction')](https://psychiatry.ucsf.edu/rtp/highlights)
+[UCSF (see 'Areas of Distinction')](https://psychiatry.ucsf.edu/rtp/highlights)\
+[University of Colorado (see 'Clinical Training Tracks')](https://medschool.cuanschutz.edu/psychiatry/education/psychiatryresidency/researchclinicaltraining)
 
 **Fellowship**\
 Fellowship [details](https://static1.squarespace.com/static/5e4ca15c7c30900b8e13a44d/t/5fb028e148fd365a10e5facb/1605380323191/Fellowship+Programs+2020+Final_10.26.20.pdf)\
