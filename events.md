@@ -14,14 +14,17 @@ Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **J
 
 **February**
 
-**March**
+**March**\
+Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, ‘Perinatal Cannabis Use’, **Date and time TBD**
 
-**April**
+**April**\
+Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education,  ‘PMDD’ , **April 12 at 12pm EST**
 
 **May**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 1)”, **May 10 at 6:30 PM EST**
 
-**June**
+**June**\
+Lecture: **Dr. Jennifer Payne**, Professor and Vice Chair of Research, University of Virginia, ‘Biomarkers of postpartum depression: epigenetics, genetics, mRNA and neurosteroids’, **Date and time TBD**
 
 **July**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 2)”, **July 26 at 6:30 PM EST**
