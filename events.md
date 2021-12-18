@@ -31,7 +31,8 @@ Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School o
 
 **August**
 
-**September**
+**September**\
+Lecture: Dr. Karen Horst, Interim Chief, Division of Reproductive Psychiatry, Baylor College of Medicine, ’Maternal Brain Changes During and after Pregnancy’, **Date and time TBD**
 
 **October**
 
