@@ -15,7 +15,7 @@ Weill Cornell Medicine\
 University of Virginia
 
 **Psychiatry Residency Women's Mental Health Tracks/Concentrations**\
-[Harvard Brigham and Women's Hospital](http://www.bwhhmspsychiatry.org/residency-elements/residency-tracks-and-concentrations/#1474911438668-23a7e244-05a3)\
+[Harvard Brigham and Women's Hospital (see 'Concentrations')](http://www.bwhhmspsychiatry.org/residency-elements/residency-tracks-and-concentrations/#1474911438668-23a7e244-05a3)\
 [University of Washington](http://depts.washington.edu/psychres/wordpress/perinatal-psychiatry-pathway/)\
 [University of Pittsburgh](https://www.psychiatry.pitt.edu/educationtraining/residency-fellowships/training-pathways-initiatives/womens-mental-health-area)\
 [University of Illinois, Chicago](https://www.psych.uic.edu/education/general-psychiatry-residency/subspecialty-training/womens-mental-health)\
