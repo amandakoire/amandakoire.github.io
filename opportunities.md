@@ -7,12 +7,12 @@ aside: false
 Zucker School of Medicine at Hofstra/Northwell\
 University of Missouri at Columbia\
 Baylor College of Medicine\
-University of Arizona\
+University of Arizona
 
 **Psychiatry Resident Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
 Weill Cornell Medicine\
-University of Virginia\
+University of Virginia
 
 **Psychiatry Residency Women's Mental Health Tracks/Concentrations**\
 [Harvard Brigham and Women's Hospital](http://www.bwhhmspsychiatry.org/residency-elements/residency-tracks-and-concentrations/#1474911438668-23a7e244-05a3)\
