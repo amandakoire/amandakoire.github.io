@@ -2,7 +2,7 @@
 title: 
 feature_image: "/images/RPTtrial.png"
 feature_text: |
-  ## 
+  
 aside: true
 ---
 
