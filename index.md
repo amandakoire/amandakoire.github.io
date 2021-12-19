@@ -6,4 +6,6 @@ feature_text: |
 aside: true
 ---
 
-Join [here](https://forms.gle/Ue76URFWoJv7R3ek8)
+If you are an interested trainee, join [here](https://forms.gle/WAqAvHthLiXGC1zr7)
+
+If you are a faculty member who is willing to become a speaker or panelist, please contact us [here](https://forms.gle/mjV2LdPSdfJSYZB38)
