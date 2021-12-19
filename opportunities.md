@@ -30,4 +30,4 @@ Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
 
 **Job openings**\
 [ISRP Listings](https://reproductivepsychiatry.com/reproductive-psychiatrist-jobs/)\
-Please email repropsychres@gmail.com if you have an open position you would like to have highlighted 
+Please email repropsychtrainees@gmail.com if you have an open position you would like to have highlighted 
