@@ -4,7 +4,7 @@ aside: false
 ---
 **Apps:**\
 Reprotox- FREE for trainees, register [here](https://www.reprotox.org/join#prop-2)\
-InfantRisk- one-time $10 fee
+[InfantRisk](https://apps.apple.com/us/app/infantrisk-hcp/id449136121)- one-time $10 fee
 
 **Self-guided training:**\
 National Curriculum in Reproductive Psychiatry- modules are free but must [register](https://ncrptraining.org/learning-modules/ ) an account. CME available.\
