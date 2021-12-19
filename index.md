@@ -1,6 +1,6 @@
 ---
 title: 
-feature_image: "/images/RPTtrial.png"
+feature_image: "/images/RPTbanner.png"
 feature_text: |
   
 aside: true
