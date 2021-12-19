@@ -1,6 +1,6 @@
 ---
 title: 
-feature_image: ""/images/Repro psych trainees.jpg""
+feature_image: "/images/Repro psych trainees.jpg"
 feature_text: |
   ## Reproductive Psychiatry Trainee Interest Group
 aside: true
