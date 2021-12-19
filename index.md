@@ -1,6 +1,6 @@
 ---
 title: 
-feature_image: "/images/RPTtrial.jpg"
+feature_image: "/images/RPTtrial.png"
 feature_text: |
   ## Reproductive Psychiatry Trainee Interest Group
 aside: true
