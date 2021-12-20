@@ -29,7 +29,7 @@ Psychopharmacology Institute free lectures (brief, good for commuting):\
 **High-Yield Newsletters:**\
 [Subscribe](https://womensmentalhealth.org/subscribe/) to MGH Center for Women’s Mental Health newsletters\
 [Subscribe](https://www.mmhla.org/mmhla-newsletters/) to Maternal Mental Health Leadership Alliance (MMHLA) newsletters\
-The Carlat Report (online-only version) is free for trainees, contact info@thecarlatreport.com to request access
+The Carlat Report (online-only version) is free for trainees, contact jives@thecarlatreport.com to request access
 
 **Clinical Rounds:**\
 [Register](https://womensmentalhealth.org/educational-programs/virtual-rounds-at-the-cwmh/) for MGH Center for Women’s Mental Health Virtual Rounds
