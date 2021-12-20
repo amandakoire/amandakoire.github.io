@@ -34,7 +34,7 @@ Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School o
 **September**\
 Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry, Baylor College of Medicine, ’Maternal Brain Changes During and after Pregnancy’, **Date and time TBD**
 
-**October**
+**October**\
 Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women's Wellness & Counseling Service, University of Iowa, 'Infertility Counseling and Third-party Reproduction-Health Psychology', **October 20 at 7pm EST**
 
 **November**
