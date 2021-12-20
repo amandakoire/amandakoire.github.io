@@ -23,7 +23,7 @@ plugins:
 # Site settings
 url: 'https://mydomain.com'
 baseurl: ''
-title: 'RPTIG'
+title: 'RPT'
 description: 'Connect with us on social media'
 permalink: pretty
 logo: "/images/RPT.jpg"
@@ -56,7 +56,7 @@ navigation_footer:
 
 social_links: # Appears in sidebar. Set the urls then uncomment and comment out as desired
   Twitter: https://twitter.com/Repro_psych
-  Instagram: https://www.instagram.com/moments_with_maia/
+  Instagram: https://instagram.com/repro_psych?utm_medium=copy_link
   #link: https://darn.es
   #RSS: /feed.xml
 
