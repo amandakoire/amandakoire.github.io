@@ -18,7 +18,7 @@ Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **J
 Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, ‘Perinatal Cannabis Use’, **March 24 at 4pm EST**
 
 **April**\
-Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, ‘PMDD’ , **April 25th at 12pm EST**
+Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, ‘PMDD’ , **April 25 at 12pm EST**
 
 **May**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 1)”, **May 10 at 6:30 PM EST**
