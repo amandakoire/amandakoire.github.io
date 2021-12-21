@@ -12,7 +12,8 @@ Meet and Greet/Planning Committee Meeting, **Dec 21 at 8 PM EST**. Email reprops
 **January**\
 Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **January 18 at 8 PM EST**. RSVP [here](https://forms.gle/zKfEjPbZZmQ8vpZM8)
 
-**February**
+**February**\
+Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, **Feb 2 at 5pm EST**
 
 **March**\
 Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, ‘Perinatal Cannabis Use’, **March 24 at 4pm EST**
