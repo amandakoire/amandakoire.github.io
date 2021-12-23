@@ -38,6 +38,7 @@ Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry
 **October**\
 Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women's Wellness & Counseling Service, University of Iowa, 'Infertility Counseling and Third-party Reproduction-Health Psychology', **October 20 at 7pm EST**
 
-**November**
+**November**\
+Lecture: **Dr. Alyson Gorun**, Assistant Clinical Professor of Psychiatry, Weill Cornell Medicine, 'Psychodynamic Psychotherapy in Peripartum Women', **Nov 9 at 5pm EST**
 
 **December**
