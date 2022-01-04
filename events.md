@@ -30,7 +30,7 @@ Lecture: **Dr. Jennifer Payne**, Professor and Vice Chair of Research, Universit
 **July**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 2)”, **July 26 at 6:30pm EST**
 
-**August**
+**August**\
 Lecture: **Dr. Amalia Lodoño Tobón**, Psychiatrist and Researcher, NIH, 'Disparities in Perinatal Mental Health', **August 16 at 12pm EST**
 
 **September**\
