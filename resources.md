@@ -23,6 +23,9 @@ Psychopharmacology Institute free lectures (brief, good for commuting):\
 ['Postpartum depression pharmacotherapy antidepressants and brexanolone'](https://psychopharmacologyinstitute.com/section/postpartum-depression-pharmacotherapy-antidepressants-and-brexanolone-2541-4785)\
 ['Postpartum psychosis clinical considerations'](https://psychopharmacologyinstitute.com/section/postpartum-psychosis-clinical-considerations-2541-4789)\
 ['Treatment strategies for postpartum bipolar disorder and psychosis'](https://psychopharmacologyinstitute.com/section/treatment-strategies-for-postpartum-bipolar-disorder-and-psychosis-2541-4790)\
+['Medications During Breastfeeding: Guidelines and Labels'](https://psychopharmacologyinstitute.com/section/medications-during-breastfeeding-guidelines-and-labels-2615-5071)\
+['Drug Use in Breastfeeding and Adverse Effects'](https://psychopharmacologyinstitute.com/section/drug-use-in-breastfeeding-and-adverse-effects-2615-5073)\
+['Antidepressants During Breastfeeding'](https://psychopharmacologyinstitute.com/section/antidepressants-during-breastfeeding-2615-5074)\
 ['Assessing perimenopausal depression in clinical practice'](https://psychopharmacologyinstitute.com/section/assessing-perimenopausal-depression-in-clinical-practice-2493-4844)\
 ['Treatment of perimenopausal depression'](https://psychopharmacologyinstitute.com/section/treatment-of-perimenopausal-depression-2493-4845)
 
