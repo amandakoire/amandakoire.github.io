@@ -44,7 +44,7 @@ Lecture: **Dr. Alyson Gorun**, Assistant Clinical Professor of Psychiatry, Weill
 
 **December**
 
-**2022**
+**2023**
 
 **January**\
 Lecture: **Adrienne Griffen**, Executive Director, Maternal Mental Health Leadership Alliance, 'Maternal Mental Health Advocacy', **Date and time TBD**
