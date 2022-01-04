@@ -43,3 +43,10 @@ Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women
 Lecture: **Dr. Alyson Gorun**, Assistant Clinical Professor of Psychiatry, Weill Cornell Medicine, 'Psychodynamic Psychotherapy in Peripartum Women', **Nov 9 at 5pm EST**
 
 **December**
+
+**2022**
+
+**January**\
+Lecture: **Adrienne Griffen**, Executive Director, Maternal Mental Health Leadership Alliance, 'Maternal Mental Health Advocacy', **Date and time TBD**
+
+
