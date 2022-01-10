@@ -34,7 +34,7 @@ Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School o
 Lecture: **Dr. Amalia Lodoño Tobón**, Psychiatrist and Researcher, NIH, 'Disparities in Perinatal Mental Health', **August 16 at 12pm EST**
 
 **September**\
-Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry, Baylor College of Medicine, ’Maternal Brain Changes During and after Pregnancy’, **Date and time TBD**
+Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry, Baylor College of Medicine, ’Maternal Brain Changes During and after Pregnancy’, **September 12 at 7pm EST**
 
 **October**\
 Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women's Wellness & Counseling Service, University of Iowa, 'Infertility Counseling and Third-party Reproduction-Health Psychology', **October 20 at 7pm EST**
