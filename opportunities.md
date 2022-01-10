@@ -4,7 +4,8 @@ aside: false
 ---
 
 **Conferences**\
-North American Society for Psychosocial Obstetrics and Gynecology (NASPOG). April 22-24, 2022. Ann Arbor, MI. Abstracts due Dec 22, 2021, submit [here](https://www.naspog.org/Abstracts-2022)
+North American Society for Psychosocial Obstetrics and Gynecology (NASPOG). April 22-24, 2022. Ann Arbor, MI. Abstracts due Dec 22, 2021, submit [here](https://www.naspog.org/Abstracts-2022)\
+2022 Biennial Conference of the International Marcé Society, September 19-21, 2022. London, UK
 
 **Medical Student Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
