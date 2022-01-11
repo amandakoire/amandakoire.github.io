@@ -8,6 +8,8 @@ North American Society for Psychosocial Obstetrics and Gynecology (NASPOG). Apri
 
 Postpartum Support International (PSI) Conference. July 13-17, 2022. New Orleans, LA. Details [here](https://www.postpartum.net/professionals/psi-conference/)
 
+Psych Congress. September 17-20, 2022. New Orleans, LA. [ISRP](https://reproductivepsychiatry.com/about/) sponsors multiple sessions on Reproductive Psychiatry as part of this conference.  
+
 2022 Biennial Conference of the International Marcé Society, September 19-21, 2022. London, UK
 
 **Medical Student Away Rotations**\
