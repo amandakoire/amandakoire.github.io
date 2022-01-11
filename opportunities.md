@@ -6,6 +6,8 @@ aside: false
 **Conferences**\
 North American Society for Psychosocial Obstetrics and Gynecology (NASPOG). April 22-24, 2022. Ann Arbor, MI. Abstracts due Dec 22, 2021, submit [here](https://www.naspog.org/Abstracts-2022)
 
+Parental Brain 2022. May 16-18, 2022. St. Malo, France. Details [here](https://www.parentalbrain2022.com/)
+
 Postpartum Support International (PSI) Conference. July 13-17, 2022. New Orleans, LA. Details [here](https://www.postpartum.net/professionals/psi-conference/)
 
 Psych Congress. September 17-20, 2022. New Orleans, LA. [ISRP](https://reproductivepsychiatry.com/about/) sponsors multiple sessions on Reproductive Psychiatry as part of this conference.  
