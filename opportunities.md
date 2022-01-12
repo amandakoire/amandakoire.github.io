@@ -46,5 +46,7 @@ Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
 **Job openings**\
 [ISRP Listings](https://reproductivepsychiatry.com/reproductive-psychiatrist-jobs/)\
 Beth Israel Deaconess Medical Center in Boston is hiring for a Women's Mental Health Position, apply online at www.hmfphysicians.org/careers. Respond to requisition #210408.\
-Arbit Counseling (private practice) in Northwest DC and Bethesda is looking for a perinatal clinician. Email ruthie@arbitcounseling.com with a cover letter and resume if interested.\
-Please email repropsychtrainees@gmail.com if you have an open position you would like to have highlighted 
+Arbit Counseling (private practice) in Northwest DC and Bethesda is looking for a perinatal clinician.\
+Zucker Hillside Hospital in NY is is seeking a full-time outpatient perinatal psychiatrist.\
+Texas Tech in Lubbock, TX is hiring for their new reproductive psychiatry division.\
+* *Please email us at repropsychtrainees@gmail.com for contact information for these positions if interested, or if you have a position you would like to have highlighted. 
