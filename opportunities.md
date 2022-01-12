@@ -16,6 +16,8 @@ Psych Congress. September 17-20, 2022. New Orleans, LA. [ISRP](https://reproduct
 
 2022 Biennial Conference of the International Marcé Society, September 19-21, 2022. London, UK
 
+North American Menopause Society, October 12-15, 2022. Atlanta, GA. 
+
 **Medical Student Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
 University of Missouri at Columbia\
@@ -44,4 +46,5 @@ Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
 **Job openings**\
 [ISRP Listings](https://reproductivepsychiatry.com/reproductive-psychiatrist-jobs/)\
 Beth Israel Deaconess Medical Center in Boston is hiring for a Women's Mental Health Position, apply online at www.hmfphysicians.org/careers. Respond to requisition #210408.\
+Arbit Counseling (private practice) in Northwest DC and Bethesda is looking for a perinatal clinician. Email ruthie@arbitcounseling.com with a cover letter and resume if interested.\
 Please email repropsychtrainees@gmail.com if you have an open position you would like to have highlighted 
