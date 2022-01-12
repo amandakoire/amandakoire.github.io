@@ -43,6 +43,11 @@ Please contact repropsychtrainees@gmail.com if you are interested in being conne
 **Social Media:**\
 [Reproductive Psychiatry-Women's Mental Health Facebook Group](https://www.facebook.com/groups/885227871623123) for physicians (resident level and above)
 
+**Resources to Provide Patients**\
+Connect a patient to a peer mentor through Postpartum Support International [here](https://www.postpartum.net/get-help/peer-mentor-program/)\
+MothertoBaby [fact sheets](https://mothertobaby.org/fact-sheets/) that answer frequently asked questions about many common exposures during pregnancy and breastfeeding, including medications, recreational substances, cosmetic treatments, health conditions, infections, vaccines, and more.\
+[Conversation starters](https://www.mcpapformoms.org/Docs/ConvoStarters_SB_Final.pdf) for partners and family members to notice and start talking about possible postpartum depression. 
+
 **National Organizations:**\
 [Marce of North America (MONA)](https://marcenortham.com/)\
 [Postpartum Support International](https://www.postpartum.net/)\
