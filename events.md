@@ -15,6 +15,8 @@ Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **J
 **February**\
 Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'Perinatal Psychiatry Over Two Decades: Lessons Learned', **Feb 2 at 5pm EST**
 
+*Not hosted by RPT but of interest:* **Dr. Leena P. Mittal**, Chief of the Division of Women's Mental Health at Brigham and Women's Hospital, 'MCPAP for Moms Webinar: Examining Racial Equity in Perinatal Mental Health', Feb 9 at 12pm EST. Free registration [here](https://beaconhealthoptions.zoom.us/webinar/register/WN_NIr0KNz4T-yVHTNnVaEb7g)
+
 **March**\
 Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, ‘Perinatal Cannabis Use’, **March 24 at 4pm EST**
 
