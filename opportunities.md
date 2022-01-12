@@ -49,4 +49,4 @@ Beth Israel Deaconess Medical Center in Boston is hiring for a Women's Mental He
 Arbit Counseling (private practice) in Northwest DC and Bethesda is looking for a perinatal clinician.\
 Zucker Hillside Hospital in NY is is seeking a full-time outpatient perinatal psychiatrist.\
 Texas Tech in Lubbock, TX is hiring for their new reproductive psychiatry division.\
-* *Please email us at repropsychtrainees@gmail.com for contact information for these positions if interested, or if you have a position you would like to have highlighted. 
+*Please email us at repropsychtrainees@gmail.com for contact information for these positions if interested, or if you have a position you would like to have highlighted.* 
