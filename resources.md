@@ -10,6 +10,7 @@ Reprotox- FREE for trainees, register [here](https://www.reprotox.org/join#prop-
 National Curriculum in Reproductive Psychiatry- modules are free but must [register](https://ncrptraining.org/learning-modules/ ) an account. CME available.\
 APA Learning Center ['Exploration of How to Care for Pregnant Women With Psychiatric Illness'](https://education.psychiatry.org/diweb/catalog/item/eid/C2100412?_ga=2.111696775.267613355.1639848374-837796321.1639848374&fbclid=IwAR33xdrkQhk036k-27laX8VRjwNo5xaAt-0gIsPgXd0NdBhiT41c9YVDcRQ). Free for APA members; register by December 31, 2021 and complete by the end of 2024. CME available.\
 MGH Center for Women’s Mental Health [‘Essential Reads’](https://womensmentalhealth.org/blog/essential-reads/)
+Recommended reading list on ['Women, men, and LGBT mental health'](https://smile.amazon.com/ideas/amzn1.account.AEKBAGFDZAYNMMQXFBHEMSJL6Y7A/1J3ZQVO8F9QAH?ref=idea_share) curated by Dr. Francis Lu, MD, DLFAPA Kim Professor in Cultural Psychiatry, Emeritus UC Davis
 
 **Podcasts:**\
 Psychopharmacology Institute free lectures (brief, good for commuting):\
