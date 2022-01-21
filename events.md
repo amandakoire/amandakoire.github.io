@@ -10,10 +10,10 @@ Meet and Greet/Planning Committee Meeting, **Dec 21 at 8 PM EST**. Email reprops
 **2022**
 
 **January**\
-Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **January 18 at 8 PM EST**. RSVP [here](https://forms.gle/zKfEjPbZZmQ8vpZM8)
+Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **January 18 at 8 PM EST**. 
 
 **February**\
-Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'Perinatal Psychiatry Over Two Decades: Lessons Learned', **Feb 2 at 5pm EST**
+Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'Perinatal Psychiatry Over Two Decades: Lessons Learned', **Feb 2 at 5pm EST**. RSVP [here](https://forms.gle/p7oC8PR2jRez5jEj8).
 
 *Not hosted by RPT but of interest:* **Dr. Leena P. Mittal**, Chief of the Division of Women's Mental Health at Brigham and Women's Hospital, 'MCPAP for Moms Webinar: Examining Racial Equity in Perinatal Mental Health', **Feb 9 at 12pm EST**. Free registration [here](https://beaconhealthoptions.zoom.us/webinar/register/WN_NIr0KNz4T-yVHTNnVaEb7g)
 
