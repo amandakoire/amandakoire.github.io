@@ -12,6 +12,8 @@ Meet and Greet/Planning Committee Meeting, **Dec 21 at 8 PM EST**. Email reprops
 **January**\
 Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **January 18 at 8 PM EST**. 
 
+*Not hosted by RPT but of interest:* Webinar: 'The Path To Perinatal Mental Wellness: A Missing Link to Improving Black Maternal Health Outcomes'. **Jan 27 at 3pm ET** Link [here](https://bit.ly/3HGiApZ)
+
 **February**\
 Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'Perinatal Psychiatry Over Two Decades: Lessons Learned', **Feb 2 at 5pm EST**. RSVP [here](https://forms.gle/p7oC8PR2jRez5jEj8).
 
