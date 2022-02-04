@@ -27,7 +27,8 @@ University of Arizona
 **Psychiatry Resident Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
 Weill Cornell Medicine\
-University of Virginia
+University of Virginia\
+University of Iowa
 
 **Psychiatry Residency Women's Mental Health Tracks/Concentrations**\
 [Harvard Brigham and Women's Hospital (see 'Concentrations')](http://www.bwhhmspsychiatry.org/residency-elements/residency-tracks-and-concentrations/#1474911438668-23a7e244-05a3)\
@@ -45,6 +46,7 @@ Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
 
 **Job openings**\
 [ISRP Listings](https://reproductivepsychiatry.com/reproductive-psychiatrist-jobs/)\
+Columbia University is hiring for inpatient/outpatient Women's Reproductive Psychiatrist, apply online at https://apply.interfolio.com/96628.\
 Beth Israel Deaconess Medical Center in Boston is hiring for a Women's Mental Health Position, apply online at www.hmfphysicians.org/careers. Respond to requisition #210408.\
 Arbit Counseling (private practice) in Northwest DC and Bethesda is looking for a perinatal clinician.\
 Zucker Hillside Hospital in NY is is seeking a full-time outpatient perinatal psychiatrist.\
