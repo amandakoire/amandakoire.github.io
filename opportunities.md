@@ -46,7 +46,7 @@ Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
 
 **Job openings**\
 [ISRP Listings](https://reproductivepsychiatry.com/reproductive-psychiatrist-jobs/)\
-Columbia University is hiring for inpatient/outpatient Women's Reproductive Psychiatrist, apply online at https://apply.interfolio.com/96628.\
+Columbia University is hiring for inpatient/outpatient Women's Reproductive Psychiatrist, apply online at https://apply.interfolio.com/96628 \
 Beth Israel Deaconess Medical Center in Boston is hiring for a Women's Mental Health Position, apply online at www.hmfphysicians.org/careers. Respond to requisition #210408.\
 Arbit Counseling (private practice) in Northwest DC and Bethesda is looking for a perinatal clinician.\
 Zucker Hillside Hospital in NY is is seeking a full-time outpatient perinatal psychiatrist.\
