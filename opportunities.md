@@ -18,9 +18,6 @@ Psych Congress. September 17-20, 2022. New Orleans, LA. [ISRP](https://reproduct
 
 North American Menopause Society, October 12-15, 2022. Atlanta, GA. 
 
-**Research Opportunities**\
-From incoming BWH WMH Fellow Natalie Feldman (2/9/22): 'I'm leading a group at Brigham and Women's conducting a massive review of the literature within postpartum anxiety. We're looking for a few more trainees (undergrads, medical students, or residents) to join the project. We're looking for a commitment of ~5 hours per week over the next few months. If you're interested in learning to conduct a review, interested in postpartum anxiety, and/or looking to join another publication, please email Natalie Feldman at nsfeldman@partners.org for more information.'
-
 **Medical Student Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
 University of Missouri at Columbia\
