@@ -12,7 +12,7 @@ APA Learning Center ['Exploration of How to Care for Pregnant Women With Psychia
 MGH Center for Women’s Mental Health [‘Essential Reads’](https://womensmentalhealth.org/blog/essential-reads/)\
 APA Online Learning Module on [Depression and Anxiety During Pregnancy and Postpartum](https://education.psychiatry.org/diweb/catalog/item/eid/C1600403?_ga=2.176933484.894100669.1642097960-945959711.1638928356)\
 NIMH Innovation Speaker Series: ["Addressing Social Determinants to Optimize Infant Brain Development"](https://www.youtube.com/watch?v=HfgKhibUsrw). Dr. Cynthia Rogers of Washington University, St. Louis, recorded 1/18/2022.\
-[Developing Brain seminar series (recorded)](https://developingbrainresearchlaboratory.org/00_Training_Past_Events.html)\
+Developing Brain seminar series[recordings](https://developingbrainresearchlaboratory.org/00_Training_Past_Events.html)\
 Recommended reading list on ['Women, men, and LGBT mental health'](https://smile.amazon.com/ideas/amzn1.account.AEKBAGFDZAYNMMQXFBHEMSJL6Y7A/1J3ZQVO8F9QAH?ref=idea_share) curated by Dr. Francis Lu, MD, DLFAPA Kim Professor in Cultural Psychiatry, Emeritus UC Davis
 
 **Podcasts:**\
