@@ -42,7 +42,7 @@ The Carlat Report (online-only version) is free for trainees, contact jives@thec
 [Register](https://womensmentalhealth.org/educational-programs/virtual-rounds-at-the-cwmh/) for MGH Center for Women’s Mental Health Virtual Rounds
 
 **Journal Clubs:**\
-Please contact repropsychtrainees@gmail.com if you are interested in being connected to join the Mt. Sinai Reproductive Psychiatry Journal Club (meets monthly)
+Please contact mountsinairepropsychjc@gmail.com if you are interested in being connected to join the Mt. Sinai Reproductive Psychiatry Journal Club (meets monthly)
 
 **Social Media:**\
 [Reproductive Psychiatry-Women's Mental Health Facebook Group](https://www.facebook.com/groups/885227871623123) for physicians (resident level and above)
