@@ -50,7 +50,7 @@ Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women
 **November**\
 Lecture: **Dr. Alyson Gorun**, Assistant Clinical Professor of Psychiatry, Weill Cornell Medicine, "Psychodynamic Psychotherapy in Peripartum Women", **Nov 9 at 5pm EST**
 
-**December**
+**December**\
 Lecture: **Hilary Waller**, Psychotherapist and Director of Education and Programming, The Postpartum Stress Center, "The Art of Holding Perinatal Women in Distress", **Date and time TBD**
 
 **2023**
