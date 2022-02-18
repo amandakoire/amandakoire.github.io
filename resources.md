@@ -10,7 +10,7 @@ Reprotox- FREE for trainees, register [here](https://www.reprotox.org/join#prop-
 National line: 1-877-499-4773. Learn more [here](https://www.postpartum.net/professionals/perinatal-psychiatric-consult-line/).\
 15 states (Arkansas, California, Florida, Georgia, Illinois, Kansas, Louisiana, Massachusetts, Michigan, Montana, North Carolina, Rhode Island, Vermont, Washington, Wisconsin) represented in this [list](https://www.umassmed.edu/lifeline4moms/Access-Programs/network-members-us/)\
 New York: 1-855-227-7272. Learn more [here](https://projectteachny.org/mmh/).\
-South Carolina: 843-792-MOMS (6667). Learn more [here](https://muschealth.org/medical-services/womens/reproductive-behavioral-health/moms-impactt).\
+South Carolina: 843-792-MOMS (6667). Learn more [here](https://muschealth.org/medical-services/womens/reproductive-behavioral-health/moms-impactt).
 
 
 **Self-guided training:**\
