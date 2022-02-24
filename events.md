@@ -28,7 +28,7 @@ Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School
 **May**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 1)”, **May 10 at 6:30pm EST**
 
-Book club: __Good Moms Have Scary Thoughts: A Healing Guide to the Secret Fears of New Mothers__ by Karen Kleiman, **Date and time TBD**. 
+Book club: __Good Moms Have Scary Thoughts: A Healing Guide to the Secret Fears of New Mothers__ by Karen Kleiman, **May 31, time TBD**. 
 
 **June**\
 Lecture: **Dr. Soudabeh Givrad**, Assistant Professor of Clinical Psychiatry, Director of Maternal-Infant Psychiatry Program, New York Presbyterian Hospital-Weill Cornell, "Perinatal and infant psychiatry: a dyadic perspective", **June 6 at 12pm EST**
@@ -51,7 +51,7 @@ Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women
 Lecture: **Dr. Alyson Gorun**, Assistant Clinical Professor of Psychiatry, Weill Cornell Medicine, "Psychodynamic Psychotherapy in Peripartum Women", **Nov 9 at 5pm EST**
 
 **December**\
-Lecture: **Hilary Waller**, Psychotherapist and Director of Education and Programming, The Postpartum Stress Center, "The Art of Holding Perinatal Women in Distress", **Date and time TBD**
+Lecture: **Hilary Waller**, Psychotherapist and Director of Education and Programming, The Postpartum Stress Center, "The Secret World of the Perinatal Mother", **December 5 at 8pm**
 
 **2023**
 
