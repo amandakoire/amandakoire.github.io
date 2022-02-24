@@ -18,6 +18,8 @@ Psych Congress. September 17-20, 2022. New Orleans, LA. [ISRP](https://reproduct
 
 North American Menopause Society, October 12-15, 2022. Atlanta, GA. 
 
+9th World Congress on Women's Mental Health, November 6-9, 2022. Maastricht, The Netherlands. Details [here](https://www.iawmh2022.org/). Abstracts due March 31st.
+
 **Medical Student Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
 University of Missouri at Columbia\
