@@ -4,9 +4,10 @@ aside: false
 ---
 
 **Conferences**\
-Postpartum Support International 2022 Black Maternal Mental Health Summit. Feb 26, 2022. Online. Registration link to come. 
 
 North American Society for Psychosocial Obstetrics and Gynecology (NASPOG). April 22-24, 2022. Ann Arbor, MI. 
+
+The Women's Mental Health Conference. May 6-7, 2022. Virtual. Details [here](https://www.wmhconference.org/2022).
 
 Parental Brain 2022. May 16-18, 2022. St. Malo, France. Details [here](https://www.parentalbrain2022.com/)
 
