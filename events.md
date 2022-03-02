@@ -58,4 +58,7 @@ Lecture: **Hilary Waller**, Psychotherapist and Director of Education and Progra
 **January**\
 Lecture: **Adrienne Griffen**, Executive Director, Maternal Mental Health Leadership Alliance, "Maternal Mental Health Advocacy", **Date and time TBD**
 
+**February**\
+Lecture: **Dr. Lisa Valentine**, Assistant Professor, The Women's Place Center for Reproductive Psychiatry, Baylor College of Medicine, "Therapeutic Approaches to Pregnancy Loss and Stillbirth", **Date and time TBD**
+
 
