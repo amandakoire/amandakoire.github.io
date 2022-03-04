@@ -3,7 +3,7 @@ title: Opportunities
 aside: false
 ---
 
-**Conferences**\
+**Conferences**
 
 North American Society for Psychosocial Obstetrics and Gynecology (NASPOG). April 22-24, 2022. Ann Arbor, MI. 
 
