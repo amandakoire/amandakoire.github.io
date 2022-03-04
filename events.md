@@ -15,12 +15,12 @@ Book club: __Inferno: A Memoir of Motherhood and Madness__ by Catherine Cho, **J
 *Not hosted by RPT but of interest:* Webinar: 'The Path To Perinatal Mental Wellness: A Missing Link to Improving Black Maternal Health Outcomes'. **Jan 27 at 3pm EST**. Link [here](https://bit.ly/3HGiApZ)
 
 **February**\
-Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'Perinatal Psychiatry Over Two Decades: Lessons Learned', **Feb 2 at 5pm EST**. RSVP [here](https://forms.gle/p7oC8PR2jRez5jEj8).
+Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'Perinatal Psychiatry Over Two Decades: Lessons Learned', **Feb 2 at 5pm EST**. 
 
 *Not hosted by RPT but of interest:* **Dr. Leena P. Mittal**, Chief of the Division of Women's Mental Health at Brigham and Women's Hospital, 'MCPAP for Moms Webinar: Examining Racial Equity in Perinatal Mental Health', **Feb 9 at 12pm EST**. Free registration [here](https://beaconhealthoptions.zoom.us/webinar/register/WN_NIr0KNz4T-yVHTNnVaEb7g)
 
 **March**\
-Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, "Perinatal Cannabis Use", **March 24 at 4pm EST**
+Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, "Perinatal Cannabis Use", **March 24 at 4pm EST**. RSVP [here](https://forms.gle/1hrwdD9f3vFC6MuQ7). 
 
 **April**\
 Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, "PMDD" , **April 25 at 12pm EST**
