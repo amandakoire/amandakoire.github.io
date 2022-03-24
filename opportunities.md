@@ -21,6 +21,9 @@ North American Menopause Society, October 12-15, 2022. Atlanta, GA.
 
 9th World Congress on Women's Mental Health, November 6-9, 2022. Maastricht, The Netherlands. Details [here](https://www.iawmh2022.org/). Abstracts due March 31st.
 
+**Research Awards**\
+Susan A. Hickman Memorial Research Award through [PSI](https://psi.societyconference.com/v2/) for an individual involved in a scholarly research project that contributes to the field of perinatal mental health. The full award is $10,000 which includes a stipend for travel to attend the 35th Annual PSI Conference. Due April 15th, 2022. 
+
 **Medical Student Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
 University of Missouri at Columbia\
