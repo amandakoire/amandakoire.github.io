@@ -8,7 +8,7 @@ The Reproductive Psychiatry Trainee Interest Group was founded in 2021 to connec
 Read the March 2022 Psychiatric News article about our group [here](https://psychnews.psychiatryonline.org/doi/10.1176/appi.pn.2022.03.3.46) for more details!
 
 **Our Members**\
-Currently we serve >350 trainee members from 37 states across the United States and we are welcoming new members every day! The training level of our current membership is 26% medical students, 64% psychiatry residents, and 7% psychiatry fellows. See image below for our distribution nationally.
+Currently we serve >400 trainee members from 37 states across the United States and we are welcoming new members every day! The training level of our current membership is 26% medical students, 64% psychiatry residents, and 7% psychiatry fellows. See image below for our distribution nationally.
 <img src="/images/RPT_heatmap_11021.png" style="display: block; margin: auto;" />
 
 **Credits**\
