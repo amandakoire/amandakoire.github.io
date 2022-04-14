@@ -23,7 +23,7 @@ Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's 
 Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, "Perinatal Cannabis Use", **March 24 at 6pm EST**. RSVP [here](https://forms.gle/1hrwdD9f3vFC6MuQ7). 
 
 **April**\
-Panel discussion: **'Meet the Women's Mental Health Fellows'**, with Dr. Natalie Feldman (BWH), Dr. Julia Vileisis (Brown/WIH), Dr. Marlee Madora (BWH), Dr. Julia Riddle (Johns Hopkins), Dr. Annie Hart (The Motherhood Center), **April 12 at 5pm EST** https://wellforce-hipaa.zoom.us/j/96255807671?pwd=Yy9WT0NLeFp3bjh0SkhDaUtYT044QT09
+Panel discussion: **'Meet the Women's Mental Health Fellows'**, with Dr. Natalie Feldman (BWH), Dr. Julia Vileisis (Brown/WIH), Dr. Marlee Madora (BWH), Dr. Julia Riddle (Johns Hopkins), Dr. Annie Hart (The Motherhood Center), **April 12 at 5pm EST** 
 
 Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, "PMDD" , **April 25 at 12pm EST**
 
