@@ -25,7 +25,7 @@ Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, Uni
 **April**\
 Panel discussion: **'Meet the Women's Mental Health Fellows'**, with Dr. Natalie Feldman (BWH), Dr. Julia Vileisis (Brown/WIH), Dr. Marlee Madora (BWH), Dr. Julia Riddle (Johns Hopkins), Dr. Annie Hart (The Motherhood Center), **April 12 at 5pm EST** 
 
-Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, "PMDD" , **April 25 at 12pm EST**
+Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, "PMDD" , **April 25 at 12pm EST**, zoom link [here](https://us04web.zoom.us/j/9976113075?pwd=OFVMNHUwbGYxd3pCZWpjMmJjb2wxZz09)
 
 **May**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 1)”, **May 10 at 6:30pm EST**
