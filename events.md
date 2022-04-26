@@ -20,12 +20,12 @@ Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's 
 *Not hosted by RPT but of interest:* **Dr. Leena P. Mittal**, Chief of the Division of Women's Mental Health at Brigham and Women's Hospital, 'MCPAP for Moms Webinar: Examining Racial Equity in Perinatal Mental Health', **Feb 9 at 12pm EST**. Free registration [here](https://beaconhealthoptions.zoom.us/webinar/register/WN_NIr0KNz4T-yVHTNnVaEb7g)
 
 **March**\
-Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, "Perinatal Cannabis Use", **March 24 at 6pm EST**. RSVP [here](https://forms.gle/1hrwdD9f3vFC6MuQ7). 
+Lecture: **Dr. Lindsay Lebin**, Senior Instructor, Department of Psychiatry, University of Colorado, "Perinatal Cannabis Use", **March 24 at 6pm EST**. 
 
 **April**\
 Panel discussion: **'Meet the Women's Mental Health Fellows'**, with Dr. Natalie Feldman (BWH), Dr. Julia Vileisis (Brown/WIH), Dr. Marlee Madora (BWH), Dr. Julia Riddle (Johns Hopkins), Dr. Annie Hart (The Motherhood Center), **April 12 at 5pm EST** 
 
-Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, "PMDD" , **April 25 at 12pm EST**, zoom link [here](https://wellforce-hipaa.zoom.us/j/2423226198?pwd=eXFhR1NXZ3dxcHJick5KOXpnZmorZz09)
+Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, "PMDD" , **April 25 at 12pm EST**
 
 **May**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 1)”, **May 10 at 6:30pm EST**
