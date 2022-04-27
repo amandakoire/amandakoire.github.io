@@ -35,7 +35,7 @@ Book club: __Good Moms Have Scary Thoughts: A Healing Guide to the Secret Fears 
 **June**\
 Lecture: **Dr. Soudabeh Givrad**, Assistant Professor of Clinical Psychiatry, Director of Maternal-Infant Psychiatry Program, New York Presbyterian Hospital-Weill Cornell, "Perinatal and infant psychiatry: a dyadic perspective", **June 6 at 12pm EST**
 
-Lecture: **Dr. Jennifer Payne**, Professor and Vice Chair of Research, University of Virginia, "Biomarkers of postpartum depression: epigenetics, genetics, mRNA and neurosteroids", **Date and time TBD**
+Lecture: **Dr. Jennifer Payne**, Professor and Vice Chair of Research, University of Virginia, "Biomarkers of postpartum depression: epigenetics, genetics, mRNA and neurosteroids", **June 13th at 12pm EST**
 
 **July**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 2)”, **July 26 at 6:30pm EST**
