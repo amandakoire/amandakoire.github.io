@@ -47,6 +47,11 @@ Lecture: **Dr. Amalia Lodoño Tobón**, Psychiatrist and Researcher, NIH, "Dispa
 Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry, Baylor College of Medicine, "Maternal Brain Changes During and after Pregnancy", **September 12 at 7pm EST**
 
 **October**\
+
+Lecture: **Dr. Rachel Shmuts**, Vice Chair of Education, Rowan University School of Osteopathic Medicine, "Postpartum Psychosis" , **October 3 at 12pm EST**\
+
+Panel discussion: **'Reproductive Psychiatry Career Paths'**, with the [International Society for Reproductive Psychiatry](https://reproductivepsychiatry.com/), **October 6 at 8pm EST**\ 
+
 Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women's Wellness & Counseling Service, University of Iowa, "Infertility Counseling and Third-party Reproduction-Health Psychology", **October 20 at 7pm EST**
 
 **November**\
