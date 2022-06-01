@@ -5,7 +5,7 @@ aside: false
 **2021**
 
 **December**\
-Meet and Greet/Planning Committee Meeting, **Dec 21 at 8 PM EST**. Email repropsychtrainees@gmail.com for zoom link. 
+Meet and Greet/Planning Committee Meeting, **Dec 21 at 8 PM EST**.
 
 **2022**
 
