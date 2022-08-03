@@ -33,12 +33,15 @@ Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School o
 Book club: __Good Moms Have Scary Thoughts: A Healing Guide to the Secret Fears of New Mothers__ by Karen Kleiman, **May 31, time TBD**. 
 
 **June**\
-Lecture: **Dr. Soudabeh Givrad**, Assistant Professor of Clinical Psychiatry, Director of Maternal-Infant Psychiatry Program, New York Presbyterian Hospital-Weill Cornell, "Perinatal and infant psychiatry: a dyadic perspective", **June 6 at 12pm EST**, <i>Recording available on request at repropsychtrainees@gmail.com<i>
+Lecture: **Dr. Soudabeh Givrad**, Assistant Professor of Clinical Psychiatry, Director of Maternal-Infant Psychiatry Program, New York Presbyterian Hospital-Weill Cornell, "Perinatal and infant psychiatry: a dyadic perspective", **June 6 at 12pm EST**
+[Recording] (https://youtu.be/MaM_9XSfbWw)
 
 Lecture: **Dr. Jennifer Payne**, Professor and Vice Chair of Research, University of Virginia, "Biomarkers of postpartum depression: epigenetics, genetics, mRNA and neurosteroids", **June 13th at 12pm EST** 
+[Recording] (https://youtu.be/3sA-OmtYUyo)
 
 **July**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 2)”, **July 26 at 6:30pm EST**
+[Recording] (https://youtu.be/XDOH74UwnRs)
 
 **August**\
 Lecture: **Dr. Gillian Friedman**, Chief of Medical Staff at Patton State Hospital and ISRP board member, and **Dr. Lucia Cheng**, Phoenix Progressive Psychiatric Services and ISRP board member,  "Serious Mental Illness in Pregnancy", **August 30 at 8pm EST**
