@@ -41,7 +41,7 @@ Lecture: **Dr. Jennifer Payne**, Professor and Vice Chair of Research, Universit
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal Psychopharmacology for Depression and Anxiety: Practical Considerations in Clinical Decision Making (Part 2)”, **July 26 at 6:30pm EST**
 
 **August**\
-Lecture: **Dr. Gillian Friedman**, Chief of Medical Staff at Patton State Hospital and ISRP board member, and Dr. Lucia Cheng**, Phoenix Progressive Psychiatric Services and ISRP board member,  "Serious Mental Illness in Perinatal Mental Health", **August 30 at 8pm EST**
+Lecture: **Dr. Gillian Friedman**, Chief of Medical Staff at Patton State Hospital and ISRP board member, and **Dr. Lucia Cheng**, Phoenix Progressive Psychiatric Services and ISRP board member,  "Serious Mental Illness in Pregnancy", **August 30 at 8pm EST**
 
 **September**\
 Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry, Baylor College of Medicine, "Maternal Brain Changes During and after Pregnancy", **September 12 at 7pm EST**
