@@ -74,6 +74,6 @@ Lecture: **Dr. Lisa Valentine**, Assistant Professor, The Women's Place Center f
 Lecture: **Dr. Thalia Robakis**. Associate Clinical Professor in Psychiatry, Icahn School of Medicine at Mt Sinai, "Epigenetic markers of early life events: a clinical interpretation", **March 16 at 7pm EST**
 
 **April**\
-Lecture: **Dr. Marlene Freeman**, Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, Details TBD
+Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical School, and Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, Details TBD
 
 
