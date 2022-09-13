@@ -51,7 +51,6 @@ Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry
 **[Recording Pt. 1](https://youtu.be/kEOCIZLIYyI) [Recording Pt. 2](https://youtu.be/5Ut9M1NvxYk)**
 
 **October**\
-
 Panel discussion: **'Reproductive Psychiatry Career Paths'**, with the [International Society for Reproductive Psychiatry](https://reproductivepsychiatry.com/), **October 6 at 8pm EST** 
 
 Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women's Wellness & Counseling Service, University of Iowa, "Infertility Counseling and Third-party Reproduction-Health Psychology", **October 20 at 7pm EST**
