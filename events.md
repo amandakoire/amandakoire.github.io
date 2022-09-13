@@ -48,7 +48,7 @@ Lecture: **Dr. Gillian Friedman**, Chief of Medical Staff at Patton State Hospit
 
 **September**\
 Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry, Baylor College of Medicine, "Maternal Brain Changes During and after Pregnancy", **September 12 at 7pm EST**
-**[Recording Pt. 1](https://youtu.be/kEOCIZLIYyI)**
+**[Recording Pt. 1](https://youtu.be/kEOCIZLIYyI) [Recording Pt. 2](https://youtu.be/5Ut9M1NvxYk)**
 
 **October**\
 
