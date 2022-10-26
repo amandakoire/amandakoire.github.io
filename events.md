@@ -54,8 +54,11 @@ Lecture: **Dr. Karen Horst**, Interim Chief, Division of Reproductive Psychiatry
 Panel discussion: **'Reproductive Psychiatry Career Paths'**, with the [International Society for Reproductive Psychiatry](https://reproductivepsychiatry.com/), **October 6 at 8pm EST** 
 
 Lecture: **Dr. Stacey Pawlak**, Director and Clinical Assistant Professor, Women's Wellness & Counseling Service, University of Iowa, "Infertility Counseling and Third-party Reproduction-Health Psychology", **October 20 at 7pm EST**
+**[Recording](https://youtu.be/vupRTIk1HN4)**
 
 **November**\
+Panel discussion: **'Meet the Residents'**, **November 2nd at 8pm EST**
+
 Lecture: **Dr. Alyson Gorun**, Assistant Clinical Professor of Psychiatry, Weill Cornell Medicine, "Psychodynamic Psychotherapy in Peripartum Women", **Nov 9 at 5pm EST**
 
 **December**\
