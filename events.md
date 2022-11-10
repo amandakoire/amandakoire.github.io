@@ -62,7 +62,7 @@ Panel discussion: **'Meet the Residents'**, **November 2nd at 8pm EST**
 Lecture: **Dr. Alyson Gorun**, Assistant Clinical Professor of Psychiatry, Weill Cornell Medicine, "Psychodynamic Psychotherapy in Peripartum Women", **Nov 9 at 5pm EST**
 
 **December**\
-Lecture: **Hilary Waller**, Psychotherapist and Director of Education and Programming, The Postpartum Stress Center, "The Secret World of the Perinatal Mother", **December 5 at 8pm**
+Lecture: **Hilary Waller**, Psychotherapist and Director of Education and Programming, The Postpartum Stress Center, "The Secret World of the Perinatal Mother", **December 5 at 8pm EST**
 
 **2023**
 
@@ -70,7 +70,7 @@ Lecture: **Hilary Waller**, Psychotherapist and Director of Education and Progra
 Lecture: **Adrienne Griffen**, Executive Director, Maternal Mental Health Leadership Alliance, "Maternal Mental Health Advocacy", **Date and time TBD**
 
 **February**\
-Lecture: **Dr. Lisa Valentine**, Assistant Professor, The Women's Place Center for Reproductive Psychiatry, Baylor College of Medicine, "Therapeutic Approaches to Pregnancy Loss and Stillbirth", **Date and time TBD**
+Lecture: **Dr. Lisa Valentine**, Assistant Professor, The Women's Place Center for Reproductive Psychiatry, Baylor College of Medicine, "Therapeutic Approaches to Pregnancy Loss and Stillbirth", **February 7 at 7pm EST**
 
 **March**\
 Lecture: **Dr. Thalia Robakis**. Associate Clinical Professor in Psychiatry, Icahn School of Medicine at Mt Sinai, "Epigenetic markers of early life events: a clinical interpretation", **March 16 at 7pm EST**
