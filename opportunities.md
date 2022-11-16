@@ -51,11 +51,3 @@ PGY3/4 NCRP fellowship application [here](https://jhmi.co1.qualtrics.com/jfe/for
 Fellowship [details](https://static1.squarespace.com/static/5e4ca15c7c30900b8e13a44d/t/5fb028e148fd365a10e5facb/1605380323191/Fellowship+Programs+2020+Final_10.26.20.pdf)\
 Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
 
-**Job openings**\
-[ISRP Listings](https://reproductivepsychiatry.com/reproductive-psychiatrist-jobs/)\
-Columbia University is hiring for inpatient/outpatient Women's Reproductive Psychiatrist, apply online at https://apply.interfolio.com/96628 \
-Beth Israel Deaconess Medical Center in Boston is hiring for a Women's Mental Health Position, apply online at www.hmfphysicians.org/careers. Respond to requisition #210408.\
-Arbit Counseling (private practice) in Northwest DC and Bethesda is looking for a perinatal clinician.\
-Zucker Hillside Hospital in NY is is seeking a full-time outpatient perinatal psychiatrist.\
-Texas Tech in Lubbock, TX is hiring for their new reproductive psychiatry division.\
-*Please email us at repropsychtrainees@gmail.com for contact information for these positions if interested, or if you have a position you would like to have highlighted.* 
