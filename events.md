@@ -70,7 +70,7 @@ Lecture: **Hilary Waller**, Psychotherapist and Director of Education and Progra
 Lecture: **Adrienne Griffen**, Executive Director, Maternal Mental Health Leadership Alliance, "Maternal Mental Health Advocacy", **January 19 at 7pm EST**
 
 **February**\
-Lecture: **Dr. Lisa Valentine**, Assistant Professor, The Women's Place Center for Reproductive Psychiatry, Baylor College of Medicine, "Therapeutic Approaches to Pregnancy Loss and Stillbirth", **February 7 at 7pm EST**
+Lecture: **Dr. Lisa Valentine**, Assistant Professor, The Women's Place Center for Reproductive Psychiatry, Baylor College of Medicine, "Therapeutic Approaches to Pregnancy Loss and Stillbirth", **February 9 at 7pm EST**
 
 **March**\
 Lecture: **Dr. Thalia Robakis**. Associate Clinical Professor in Psychiatry, Icahn School of Medicine at Mt Sinai, "Epigenetic markers of early life events: a clinical interpretation", **March 16 at 7pm EST**
