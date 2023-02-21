@@ -15,7 +15,6 @@ South Carolina: 843-792-MOMS (6667). Learn more [here](https://muschealth.org/me
 
 **Self-guided training:**\
 National Curriculum in Reproductive Psychiatry- modules are free but must [register](https://ncrptraining.org/learning-modules/ ) an account. CME available.\
-APA Learning Center ['Exploration of How to Care for Pregnant Women With Psychiatric Illness'](https://education.psychiatry.org/diweb/catalog/item/eid/C2100412?_ga=2.111696775.267613355.1639848374-837796321.1639848374&fbclid=IwAR33xdrkQhk036k-27laX8VRjwNo5xaAt-0gIsPgXd0NdBhiT41c9YVDcRQ). Free for APA members; register by December 31, 2021 and complete by the end of 2024. CME available.\
 MGH Center for Women’s Mental Health [‘Essential Reads’](https://womensmentalhealth.org/blog/essential-reads/)\
 APA Online Learning Module on [Depression and Anxiety During Pregnancy and Postpartum](https://education.psychiatry.org/diweb/catalog/item/eid/C1600403?_ga=2.176933484.894100669.1642097960-945959711.1638928356)\
 NIMH Innovation Speaker Series: ['Addressing Social Determinants to Optimize Infant Brain Development'](https://www.youtube.com/watch?v=HfgKhibUsrw). Dr. Cynthia Rogers of Washington University, St. Louis, recorded 1/18/2022.\
@@ -63,4 +62,5 @@ MothertoBaby [fact sheets](https://mothertobaby.org/fact-sheets/) that answer fr
 **National Organizations:**\
 [Marce of North America (MONA)](https://marcenortham.com/)\
 [Postpartum Support International](https://www.postpartum.net/)\
-[Maternal Mental Health Leadership Alliance (MMHLA)](www.mmhla.org)
+[Maternal Mental Health Leadership Alliance (MMHLA)](www.mmhla.org)\
+[North American Society for Psychosocial Obstetrics and Gynecology (NASPOG)](https://www.naspog.org/)
