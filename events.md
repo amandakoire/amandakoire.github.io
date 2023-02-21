@@ -73,9 +73,11 @@ Lecture: **Adrienne Griffen**, Executive Director, Maternal Mental Health Leader
 Lecture: **Dr. Lisa Valentine**, Assistant Professor, The Women's Place Center for Reproductive Psychiatry, Baylor College of Medicine, "Therapeutic Approaches to Pregnancy Loss and Stillbirth", **February 9 at 7pm EST**
 
 **March**\
+Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'Postpartum Psychosis', **March 8 at 5pm EST**. 
+
 Lecture: **Dr. Thalia Robakis**. Associate Clinical Professor in Psychiatry, Icahn School of Medicine at Mt Sinai, "Epigenetic markers of early life events: a clinical interpretation", **March 16 at 7pm EST**
 
 **April**\
-Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical School, and Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, **April 13**
+Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical School, and Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'First-trimester exposure to psychotropic medications', **April 20 at 5pm EST**
 
 
