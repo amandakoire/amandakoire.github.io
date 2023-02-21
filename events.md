@@ -78,6 +78,6 @@ Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's 
 Lecture: **Dr. Thalia Robakis**. Associate Clinical Professor in Psychiatry, Icahn School of Medicine at Mt Sinai, "Epigenetic markers of early life events: a clinical interpretation", **March 16 at 7pm EST**
 
 **April**\
-Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical School, and Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'First-trimester exposure to psychotropic medications', **April 20 at 5pm EST**
+Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical School, and Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'The National Pregnancy Registry for Psychiatric Medications', **April 20 at 5pm EST**
 
 
