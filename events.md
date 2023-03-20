@@ -75,7 +75,8 @@ Lecture: **Dr. Lisa Valentine**, Assistant Professor, The Women's Place Center f
 **March**\
 Lecture: **Dr. Lee Cohen**, Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'Postpartum Psychosis', **March 8 at 5pm EST**. 
 
-Lecture: **Dr. Thalia Robakis**. Associate Clinical Professor in Psychiatry, Icahn School of Medicine at Mt Sinai, "Epigenetic markers of early life events: a clinical interpretation", **March 16 at 7pm EST**
+Lecture: **Dr. Thalia Robakis**. Associate Clinical Professor in Psychiatry, Icahn School of Medicine at Mt Sinai, "Epigenetic markers of early life events: a clinical interpretation", **March 16 at 7pm EST**\
+**[Recording](https://youtu.be/nj4eS8f55T0)**
 
 **April**\
 Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical School, and Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'The National Pregnancy Registry for Psychiatric Medications', **April 20 at 5pm EST**
