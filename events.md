@@ -83,6 +83,6 @@ Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical Schoo
 **[Recording](https://youtu.be/tk6MSwrlQVQ)**
 
 **May**\
-Book Club: 'Unspeakable Losses: Healing From Miscarriage, Abortion, And Other Pregnancy Loss' by Kim Kluger-Bell. **May 2nd at 7pm EST**\
+Book Club: __'Unspeakable Losses: Healing From Miscarriage, Abortion, And Other Pregnancy Loss'__ by Kim Kluger-Bell. **May 2nd at 7pm EST**
 
 
