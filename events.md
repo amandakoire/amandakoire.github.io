@@ -79,6 +79,10 @@ Lecture: **Dr. Thalia Robakis**. Associate Clinical Professor in Psychiatry, Ica
 **[Recording](https://youtu.be/nj4eS8f55T0)**
 
 **April**\
-Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical School, and Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'The National Pregnancy Registry for Psychiatric Medications', **April 20 at 5pm EST**
+Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical School, and Associate Director of The Ammon-Pinizzotto Center for Women's Mental Health and Associate Chief of Psychiatry, Massachusetts General Hospital, 'The National Pregnancy Registry for Psychiatric Medications', **April 20 at 5pm EST**\
+**[Recording](https://youtu.be/tk6MSwrlQVQ)**
+
+**May**\
+Book Club: 'Unspeakable Losses: Healing From Miscarriage, Abortion, And Other Pregnancy Loss' by Kim Kluger-Bell. **May 2nd at 7pm EST**\
 
 
