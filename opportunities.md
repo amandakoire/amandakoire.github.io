@@ -3,26 +3,12 @@ title: Opportunities
 aside: false
 ---
 
-**Conferences**
+**Conferences**\
+Marce of North America. October 25-28, 2023. [Link](https://marcenortham.com/2023-conference)
 
-North American Society for Psychosocial Obstetrics and Gynecology (NASPOG). April 22-24, 2022. Ann Arbor, MI. 
 
-The Women's Mental Health Conference. May 6-7, 2022. Virtual. Details [here](https://www.wmhconference.org/2022). 
+**Research Awards**
 
-Parental Brain 2022. May 16-18, 2022. St. Malo, France. Details [here](https://www.parentalbrain2022.com/)
-
-Postpartum Support International (PSI) Conference. July 13-17, 2022. New Orleans, LA. Details [here](https://www.postpartum.net/professionals/psi-conference/)
-
-Psych Congress. September 17-20, 2022. New Orleans, LA. [ISRP](https://reproductivepsychiatry.com/about/) sponsors multiple sessions on Reproductive Psychiatry as part of this conference.  
-
-2022 Biennial Conference of the International Marcé Society, September 19-21, 2022. London, UK
-
-North American Menopause Society, October 12-15, 2022. Atlanta, GA. 
-
-9th World Congress on Women's Mental Health, November 6-9, 2022. Maastricht, The Netherlands. Details [here](https://www.iawmh2022.org/). Abstracts due March 31st.
-
-**Research Awards**\
-Susan A. Hickman Memorial Research Award through [PSI](https://psi.societyconference.com/v2/) for an individual involved in a scholarly research project that contributes to the field of perinatal mental health. The full award is $10,000 which includes a stipend for travel to attend the 35th Annual PSI Conference. Due April 15th, 2022. 
 
 **Medical Student Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
@@ -47,7 +33,7 @@ University of Iowa
 [University of Colorado (see 'Clinical Training Tracks')](https://medschool.cuanschutz.edu/psychiatry/education/psychiatryresidency/researchclinicaltraining)
 
 **Fellowship**\
-PGY3/4 NCRP fellowship application [here](https://jhmi.co1.qualtrics.com/jfe/form/SV_3yheLprEaVjPqAe), deadline April 15th.\
-Fellowship [details](https://static1.squarespace.com/static/5e4ca15c7c30900b8e13a44d/t/5fb028e148fd365a10e5facb/1605380323191/Fellowship+Programs+2020+Final_10.26.20.pdf)\
+PGY3/4 NCRP fellowship application typically due mid-April each year.\
+Fellowship [details](https://static1.squarespace.com/static/637b72cb2e3c555fa412eaf0/t/63ecf11edec6e273397f759f/1676472606637/WMHPsychiatry-Fellowship-Programs-November-2022.pdf)\
 Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
 
