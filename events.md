@@ -85,4 +85,10 @@ Lecture: **Dr. Marlene Freeman**, Professor of Psychiatry, Harvard Medical Schoo
 **May**\
 Book Club: __'Unspeakable Losses: Healing From Miscarriage, Abortion, And Other Pregnancy Loss'__ by Kim Kluger-Bell. **May 2nd at 7pm EST**
 
+**July**\
+Movie Club: __'Tully'__ (on Netflix) **July 17th at 7pm EST**
+
+**August**\
+Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “TBD”, **August 8th at 7pm EST**
+
 
