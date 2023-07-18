@@ -12,6 +12,9 @@ National line: 1-877-499-4773. Learn more [here](https://www.postpartum.net/prof
 New York: 1-855-227-7272. Learn more [here](https://projectteachny.org/mmh/).\
 South Carolina: 843-792-MOMS (6667). Learn more [here](https://muschealth.org/medical-services/womens/reproductive-behavioral-health/moms-impactt).
 
+**Perinatal Inpatient, PHP, IOP, and Residential programs**\
+[Perinatal Inpatient, PHP, IOP](https://www.postpartum.net/get-help/intensive-perinatal-psych-treatment-in-the-us/)\
+[Residential Substance Use Treatment National Directory] (https://drugrehabus.org/rehabs/treatment/pregnant-postpartum-women/)
 
 **Self-guided training:**\
 National Curriculum in Reproductive Psychiatry- modules are free but must [register](https://ncrptraining.org/learning-modules/ ) an account. CME available.\
