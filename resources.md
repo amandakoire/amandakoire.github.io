@@ -14,7 +14,7 @@ South Carolina: 843-792-MOMS (6667). Learn more [here](https://muschealth.org/me
 
 **Perinatal Inpatient, PHP, IOP, and Residential programs**\
 [Perinatal Inpatient, PHP, IOP](https://www.postpartum.net/get-help/intensive-perinatal-psych-treatment-in-the-us/)\
-[Residential Substance Use Treatment National Directory] (https://drugrehabus.org/rehabs/treatment/pregnant-postpartum-women/)
+[Residential Substance Use Treatment National Directory](https://drugrehabus.org/rehabs/treatment/pregnant-postpartum-women/)
 
 **Self-guided training:**\
 National Curriculum in Reproductive Psychiatry- modules are free but must [register](https://ncrptraining.org/learning-modules/ ) an account. CME available.\
