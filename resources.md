@@ -26,6 +26,7 @@ Developing Brain seminar series [recordings](https://developingbrainresearchlabo
 Recommended reading list on ['Women, men, and LGBT mental health'](https://smile.amazon.com/ideas/amzn1.account.AEKBAGFDZAYNMMQXFBHEMSJL6Y7A/1J3ZQVO8F9QAH?ref=idea_share) curated by Dr. Francis Lu, MD, DLFAPA Kim Professor in Cultural Psychiatry, Emeritus UC Davis
 
 **Podcasts:**\
+Healthful Woman podcast with Dr. Shari Lusskin on ["Understanding Anxiety and Anxiety Disorders"](https://podcasts.apple.com/us/podcast/healthful-woman-podcast/id1505875002?i=1000623654607](https://soundcloud.com/user-472702094/understanding-anxiety-and-anxiety-disorders-with-dr-shari-lusskin)\
 Psychopharmacology Institute free lectures (brief, good for commuting):\
 ['Clinical pearls in perinatal psychiatry'](https://psychopharmacologyinstitute.com/publication/clinical-pearls-in-perinatal-psychiatry-2571)\
 ['Prescribing lithium during pregnancy pharmacokinetics dosing and monitoring'](https://psychopharmacologyinstitute.com/section/prescribing-lithium-during-pregnancy-pharmacokinetics-dosing-and-monitoring-2559-4948)\
