@@ -91,4 +91,13 @@ Movie Club: __'Tully'__ (on Netflix) **July 17th at 7pm EST**
 **August**\
 Lecture: **Dr. Shari Lusskin**, Clinical Professor of Psychiatry, Icahn School of Medicine at Mount Sinai, “Perinatal psychopharmacology: Principles of Management”, **August 8th at 7pm EST**
 
+**September**\
+Lecture: **Dr. Osarumen Nicole Doghor**, Assistant Professor and WMH Fellowship Director, Baylor College of Medicine , “DBT for Perinatal Women”, **September 28th at 5pm EST**
+
+**October**\
+Lecture: **Dr. Sophie Foster Fink**, Clinical Psychologist, Private Practice, “Reflecting on Birth Trauma: a Survivor and Clinician Explores Trauma Informed Postpartum Care”, **October 9th at 5pm EST**
+
+**November**\
+Lecture: **Dr. Catriona Hippman**, Postdoctoral Research Fellow, University of British Columbia, “Creating Comfort in Choice: How Women Decide Whether to Take Antidepressants in Pregnancy”, **November 14th at 6pm EST**
+
 
