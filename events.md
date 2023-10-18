@@ -97,6 +97,8 @@ Lecture: **Dr. Osarumen Nicole Doghor**, Assistant Professor and WMH Fellowship 
 **October**\
 Lecture: **Dr. Sophie Foster Fink**, Clinical Psychologist, Private Practice, “Reflecting on Birth Trauma: a Survivor and Clinician Explores Trauma Informed Postpartum Care”, **October 9th at 5pm EST**
 
+Panel: **Residency Panel: WMH opportunities in residency**, with Raia Blum (Mount Sinai), Chelsea Shannon (UCLA), Sitara Soundararajan (Montefiore), Ziba Colah (Baylor COM),  **October 25th at 7pm EST**
+
 **November**\
 Lecture: **Dr. Catriona Hippman**, Postdoctoral Research Fellow, University of British Columbia, “Creating Comfort in Choice: How Women Decide Whether to Take Antidepressants in Pregnancy”, **November 14th at 6pm EST**
 
