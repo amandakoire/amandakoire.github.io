@@ -102,4 +102,18 @@ Panel: **Residency Panel: WMH opportunities in residency**, with Raia Blum (Moun
 **November**\
 Lecture: **Dr. Catriona Hippman**, Postdoctoral Research Fellow, University of British Columbia, “Creating Comfort in Choice: How Women Decide Whether to Take Antidepressants in Pregnancy”, **November 14th at 6pm EST**
 
+**December**\
+Lecture: **Dr. Misty Richards**, Assistant Clinical Professor and CAP Fellowship Director, UCLA, “Maternal & Infant Mental Health: Relationships as Agents of Change", **December 12th at 4:00 pm PST**
+
+**2024**
+
+**January**\
+Lecture: **Dr. Nina Ross**, Hackensack Meridian Health, Forensic Psychiatry Fellowship Director, "Perinatal OCD", **January 24th at 7pm EST**
+
+**February**\
+Lecture: **Dr. Rebecca Woo**, Assistant Professor of Psychiatry at Emory School of Medicine, "Perinatal ADHD", **February 6th at 7pm EST**
+
+**March**\
+Panel discussion: **'Meet the Women's Mental Health Fellows'**, **March 18th at 7pm EST** 
+
 
