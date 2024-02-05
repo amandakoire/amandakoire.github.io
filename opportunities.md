@@ -31,9 +31,16 @@ University of Iowa
 [UTSW](https://www.utsouthwestern.edu/education/medical-school/departments/psychiatry/education-and-training/residency-program/wmh-concentration.html)\
 [UCSF (see 'Areas of Distinction')](https://psychiatry.ucsf.edu/rtp/highlights)\
 [University of Colorado (see 'Clinical Training Tracks')](https://medschool.cuanschutz.edu/psychiatry/education/psychiatryresidency/researchclinicaltraining)
+[Baylor College of Medicine, Women's Mental Health Track](https://www.bcm.edu/departments/psychiatry-and-behavioral-sciences/education/general-psychiatry-residency/tracks/womens-mental-health-track#:~:text=%22The%20Women's%20Mental%20Health%20track,stages%20of%20the%20reproductive%20cycle.)\
+[Zucker Hillside Hospital, Northwell Health](https://professionals.northwell.edu/graduate-medical-education/residency-general-adult-psychiatry-zucker-hillside-hospital/research-development)\
+[University of Utah, Women's Mental Health Concentration](https://medicine.utah.edu/psychiatry/residency/adult/tracks/women-track#:~:text=Participants%20in%20the%20concentration%20have,of%20psychiatric%20conditions%20affecting%20women.)\
 
-**Fellowship**\
+**WMH Fellowships**\
 PGY3/4 NCRP fellowship application typically due mid-April each year.\
 Fellowship [details](https://static1.squarespace.com/static/637b72cb2e3c555fa412eaf0/t/63ecf11edec6e273397f759f/1676472606637/WMHPsychiatry-Fellowship-Programs-November-2022.pdf)\
-Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
+Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)\
+
+**Consult-Liaison Fellowship with WMH track**\
+[Northwell Fellowship in Consultation-Liaison Psychiatry at Northwell Health, Women's Behavioral Health Track]
+(https://professionals.northwell.edu/graduate-medical-education/fellowship-consultation-liaison-psychosomatic-medicine-northwell-health/womens-behavioral-health-track)
 
