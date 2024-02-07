@@ -14,7 +14,8 @@ Marce of North America. October 25-28, 2023. [Link](https://marcenortham.com/202
 Zucker School of Medicine at Hofstra/Northwell\
 University of Missouri at Columbia\
 Baylor College of Medicine\
-University of Arizona
+University of Arizona\
+Emory University
 
 **Psychiatry Resident Away Rotations**\
 Zucker School of Medicine at Hofstra/Northwell\
