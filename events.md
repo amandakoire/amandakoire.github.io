@@ -111,7 +111,7 @@ Lecture: **Dr. Misty Richards**, Assistant Clinical Professor and CAP Fellowship
 Lecture: **Dr. Nina Ross**, Hackensack Meridian Health, Forensic Psychiatry Fellowship Director, "Perinatal OCD", **January 24th at 7pm EST**
 
 **February**\
-Lecture: **Dr. Rebecca Woo**, Assistant Professor of Psychiatry at Emory School of Medicine, "Perinatal ADHD", **February 6th at 7pm EST**
+Lecture: **Dr. Rebecca Woo**, Assistant Professor of Psychiatry at Emory School of Medicine, "Perinatal ADHD", **February 6th at 7pm EST** [Recording](https://youtu.be/W7GHwM6Y8MU)
 
 **March**\
 Lecture: **Dr. Anita Clayton**, Chair of Psychiatry and Neurobehavioral Sciences and Professor of Clinical Obstetrics and Gynecology at the University of Virginia. "Psychiatry and Sexual Medicine",  **March 5th at 7pm EST** (Event Co-Hosted with The Medical Student Forum on Female Sexual Medicine)
