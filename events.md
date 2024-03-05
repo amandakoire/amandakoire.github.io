@@ -116,9 +116,14 @@ Lecture: **Dr. Rebecca Woo**, Assistant Professor of Psychiatry at Emory School 
 **March**\
 Lecture: **Dr. Anita Clayton**, Chair of Psychiatry and Neurobehavioral Sciences and Professor of Clinical Obstetrics and Gynecology at the University of Virginia. "Psychiatry and Sexual Medicine",  **March 5th at 7pm EST** (Event Co-Hosted with The Medical Student Forum on Female Sexual Medicine)
 
+Podcast Discussion Club: "Introducing: Baby Steps," **March 12th at 8:00pm ET**. Listen [here](https://podcasts.apple.com/ie/podcast/introducing-baby-steps/id1620971837?i=1000632474266)
+
 Panel discussion: **'Meet the Women's Mental Health Fellows'**, **March 18th at 7pm EST** 
+
+Podcast Discussion Club:  "Baby Steps: How Long Does IVF Really Take?" **March 26th at 8:00 pm ET**. Listen [here](https://open.spotify.com/episode/4R3iZk4w4I1wDpXAE67m1U)
 
 **April**\
 Lecture: Dr. Kristina Deligiannidis, Director, Women's Behavioral Health at Zucker Hillside Hospital of Northwell Health, "Perinatal Depression: New Research into Pathophysiology and Neuroactive Steroid Treatment Development", **April 11th at 5pm EST** 
+
 
 
