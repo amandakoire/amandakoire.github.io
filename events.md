@@ -114,7 +114,7 @@ Lecture: **Dr. Nina Ross**, Hackensack Meridian Health, Forensic Psychiatry Fell
 Lecture: **Dr. Rebecca Woo**, Assistant Professor of Psychiatry at Emory School of Medicine, "Perinatal ADHD", **February 6th at 7pm EST** [Recording](https://youtu.be/W7GHwM6Y8MU)
 
 **March**\
-Lecture: **Dr. Anita Clayton**, Chair of Psychiatry and Neurobehavioral Sciences and Professor of Clinical Obstetrics and Gynecology at the University of Virginia. "Psychiatry and Sexual Medicine",  **March 5th at 7pm EST** (Event Co-Hosted with The Medical Student Forum on Female Sexual Medicine)
+Lecture: **Dr. Anita Clayton**, Chair of Psychiatry and Neurobehavioral Sciences and Professor of Clinical Obstetrics and Gynecology at the University of Virginia. "Psychiatry and Sexual Medicine",  **March 5th at 7pm EST** (Event Co-Hosted with The Medical Student Forum on Female Sexual Medicine) [Recording](https://youtu.be/PoQkP1tFzFk)
 
 Podcast Discussion Club: "Introducing: Baby Steps," **March 12th at 8:00pm ET**. Listen [here](https://podcasts.apple.com/ie/podcast/introducing-baby-steps/id1620971837?i=1000632474266)
 
