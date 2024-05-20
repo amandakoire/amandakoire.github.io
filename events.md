@@ -4,9 +4,7 @@ aside: false
 ---
 **Upcoming events**
 
-Lecture: **Emma Roth, JD**, Senior Staff Attorney at Pregnancy Justice, "Pregnancy Criminalization in Post-Roe America", **May 13 at 7:30 EST**
-
-Lecture: **Dr. Madeleine Becker**, ACLP President, "TBD", **June 4 at 7 PM EST**
+Lecture: **Dr. Madeleine Becker**, ACLP President, "Integrative and Holistic approaches to Women’s Mental Health Care", **June 4 at 7 PM EST**
 
 Lecture: **Dr. Diane Greene Foster, PhD & Dr. Antonia Biggs, PhD**, Authors of The Turnaway Study, "TBD", **June 17 at 7 PM EST**
 
@@ -33,6 +31,9 @@ Podcast Discussion Club:  "Baby Steps: How Long Does IVF Really Take?" **March 2
 
 **April**\
 Lecture: Dr. Kristina Deligiannidis, Director, Women's Behavioral Health at Zucker Hillside Hospital of Northwell Health, "Perinatal Depression: New Research into Pathophysiology and Neuroactive Steroid Treatment Development", **April 11th at 5pm EST** 
+
+**May**\
+Lecture: **Emma Roth, JD**, Senior Staff Attorney at Pregnancy Justice, "Pregnancy Criminalization in Post-Roe America", **May 13 at 7:30 EST**
 
 **2023**
 
