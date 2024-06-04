@@ -61,7 +61,8 @@ Please contact mountsinairepropsychjc@gmail.com if you are interested in being c
 **Resources to Provide Patients**\
 Connect a patient to a peer mentor through Postpartum Support International [here](https://www.postpartum.net/get-help/peer-mentor-program/)\
 MothertoBaby [fact sheets](https://mothertobaby.org/fact-sheets/) that answer frequently asked questions about many common exposures during pregnancy and breastfeeding, including medications, recreational substances, cosmetic treatments, health conditions, infections, vaccines, and more.\
-[Conversation starters](https://www.mcpapformoms.org/Docs/ConvoStarters_SB_Final.pdf) to help partners and family members to notice and start talking about possible postpartum depression. 
+[Conversation starters](https://www.mcpapformoms.org/Docs/ConvoStarters_SB_Final.pdf) to help partners and family members to notice and start talking about possible postpartum depression.\ 
+Recommending gentle exercise postpartum? Share the link to ['Movin with Momma's'](https://med.fsu.edu/aim/video/aim-database?tab=7964&play=https%3A%2F%2Fwww.youtube.com%2Fembed%2FCYY8rDaryks), a babywearing dance series collaboration with the Orlando Ballet, created and led by Repro Psych Trainees member Aanchal Shah (FSU COM '25)
 
 **National Organizations:**\
 [Marce of North America (MONA)](https://marcenortham.com/)\
