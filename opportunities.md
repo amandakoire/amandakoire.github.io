@@ -4,7 +4,7 @@ aside: false
 ---
 
 **Conferences**\
-Marce of North America. October 25-28, 2023. [Link](https://marcenortham.com/2023-conference)
+(Marce of North America)[https://marcenortham.com/]
 
 
 **Research Awards**
