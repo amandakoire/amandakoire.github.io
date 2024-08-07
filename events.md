@@ -35,7 +35,7 @@ Lecture: **Emma Roth, JD**, Senior Staff Attorney at Pregnancy Justice, "Pregnan
 Lecture: **Dr. Madeleine Becker**, ACLP President, Professor of Psychiatry, Integrative Medicine and Nutritional Sciences, at Thomas Jefferson University, "Integrative and Holistic approaches to Women’s Mental Health Care", **June 4 at 7 PM EST** [Recording](https://youtu.be/M--G1hTrDZQ)
 
 **July**\
-Lecture: **Dr. Diane Greene Foster, PhD & Dr. Antonia Biggs, PhD**, Authors of The Turnaway Study, "Implications of Dobbs V Women’s Health on Pregnant People’s Psychological, Health and Financial Wellbeing", **June 17 at 7 PM EST**
+Lecture: **Dr. Diane Greene Foster, PhD & Dr. Antonia Biggs, PhD**, Authors of The Turnaway Study, "Implications of Dobbs V Women’s Health on Pregnant People’s Psychological, Health and Financial Wellbeing", **June 17 at 7 PM EST** [Recording](https://youtu.be/aWl0DikcGKU)
 
 Lecture: **Dr. Martha Zimmerman, PhD**, Assistant Professor, UMass Chan Medical School, "Perinatal Mood and Anxiety Disorders: The Perinatal Mental Health Care Pathway",  **July 17 at 7PM EST** [Recording](https://youtu.be/fSUkwK4XB8s)
 
