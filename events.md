@@ -4,7 +4,11 @@ aside: false
 ---
 **Upcoming events**
 
-TBD
+Residency Panel- Thursday, September 12, at 7 PM ET\
+Description: Hear from current residents at UCLA, Penn, Montefiore, & Brigham and Women's about their residency experience, application and residency advice, and the reproductive psychiatry opportunities at their respective programs!
+
+Lecture: "Child Murder by Mothers: Mental Health and Motives" - Tuesday, September 17, at 7 PM ET\
+Speaker:  Dr. Susan Hatters Friedman, Resnick Professor of Forensic Psychiatry at Case Western Reserve University, past president of the American Academy of Psychiatry and the Law (AAPL)
 
 **Past Events**
 
