@@ -17,7 +17,7 @@ Weill Cornell Medicine\
 University of Virginia\
 University of Iowa
 
-**Psychiatry Residency Women's Mental Health Tracks/Concentrations**\
+**Psychiatry Residency Women's Mental Health Tracks/Concentrations**
 
 [Brigham and Women’s Hospital/Harvard Medical School](https://www.brighamandwomens.org/psychiatry/brigham-psychiatric-specialties/womens-mental-health#:~:text=Women%27s%20Mental%20Health%20Services%20at%20Brigham%20and%20Women%27s,with%20depression%2C%20anxiety%20and%20other%20mental%20health%20problems.)\
 [Brown](https://www.womenandinfants.org/services/behavioral-health)\
@@ -32,8 +32,8 @@ University of Iowa
 [University of North Carolina](https://www.med.unc.edu/psych/wmd)\
 [Emory](https://med.emory.edu/departments/psychiatry/programs/womens-mhp/index.html)\
 [Tulane](https://med.emory.edu/departments/psychiatry/programs/womens-mhp/index.html)\
-[University of Florida Jacksonville*](https://ufhealthjax.org/specialties/psychiatry)\
-[LSUHSC Baton Rouge Psychiatry Residency*](https://residents.lsuhsc.edu/br/psychiatry/concentration.aspx)\
+[University of Florida Jacksonville](https://ufhealthjax.org/specialties/psychiatry)\
+[LSUHSC Baton Rouge Psychiatry Residency](https://residents.lsuhsc.edu/br/psychiatry/concentration.aspx)\
 [UT Southwestern (Women’s Mental Health Concentration](https://www.utsouthwestern.edu/education/medical-school/departments/psychiatry/education-and-training/residency-program/wmh-concentration.html)\
 [Baylor Colege of Medicine General Psychiatry Residency (Women’s Mental Health Track)](https://www.bcm.edu/departments/psychiatry-and-behavioral-sciences/education/general-psychiatry-residency/tracks/womens-mental-health-track)\
 [UT Austin](https://uthealthaustin.org/clinics/mulva-clinic-for-the-neurosciences/womens-reproductive-mental-health)\[University of Colorado (Women’s Reproductive Psychiatry Track)](https://medschool.cuanschutz.edu/psychiatry/education/psychiatryresidency/researchclinicaltraining)\
