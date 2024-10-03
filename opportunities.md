@@ -3,22 +3,7 @@ title: Opportunities
 aside: false
 ---
 
-**Medical Student Away Rotations**\
-Brigham and Women's Hospital/Harvard Medical School\
-Zucker School of Medicine at Hofstra/Northwell\
-University of Missouri at Columbia\
-Baylor College of Medicine\
-University of Arizona\
-Emory University
-
-**Psychiatry Resident Away Rotations**\
-Zucker School of Medicine at Hofstra/Northwell\
-Weill Cornell Medicine\
-University of Virginia\
-University of Iowa
-
 **Psychiatry Residency Women's Mental Health Tracks/Concentrations**
-
 [Brigham and Women’s Hospital/Harvard Medical School](https://www.brighamandwomens.org/psychiatry/brigham-psychiatric-specialties/womens-mental-health#:~:text=Women%27s%20Mental%20Health%20Services%20at%20Brigham%20and%20Women%27s,with%20depression%2C%20anxiety%20and%20other%20mental%20health%20problems.)\
 [Brown](https://www.womenandinfants.org/services/behavioral-health)\
 [Hofstra Zucker Hillside Hospital (Pathways to Expertise)]( https://physicians.northwell.edu/education/graduate-medical-education/residency-general-adult-psychiatry-zucker-hillside-hospital/research-development)\
@@ -45,6 +30,12 @@ University of Iowa
 [UCSF (Area of Distinction)](https://psychiatry.ucsf.edu/rtp/highlights)\
 [University of Washington](https://www.washington.edu/research/research-centers/perc-center-perinatal-mental-health-and-substance-use-education-research-and-clinical-consultation/)
 
+**Psychiatry Resident Away Rotations**\
+Zucker School of Medicine at Hofstra/Northwell\
+Weill Cornell Medicine\
+University of Virginia\
+University of Iowa
+
 **WMH Fellowships**\
 PGY3/4 NCRP fellowship application typically due mid-April each year.\
 Fellowship [details](https://static1.squarespace.com/static/637b72cb2e3c555fa412eaf0/t/63ecf11edec6e273397f759f/1676472606637/WMHPsychiatry-Fellowship-Programs-November-2022.pdf)\
@@ -53,4 +44,13 @@ Fellowship [websites](https://reproductivepsychiatry.com/fellowship-programs/)
 **Consult-Liaison Fellowship with WMH track**\
 [Northwell Fellowship in Consultation-Liaison Psychiatry at Northwell Health]
 (https://professionals.northwell.edu/graduate-medical-education/fellowship-consultation-liaison-psychosomatic-medicine-northwell-health/womens-behavioral-health-track)
+
+**Medical Student Away Rotations**\
+Brigham and Women's Hospital/Harvard Medical School\
+Zucker School of Medicine at Hofstra/Northwell\
+University of Missouri at Columbia\
+Baylor College of Medicine\
+University of Arizona\
+Emory University
+
 
