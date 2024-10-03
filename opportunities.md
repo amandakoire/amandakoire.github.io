@@ -36,7 +36,8 @@ University of Iowa
 [LSUHSC Baton Rouge Psychiatry Residency](https://residents.lsuhsc.edu/br/psychiatry/concentration.aspx)\
 [UT Southwestern (Women’s Mental Health Concentration](https://www.utsouthwestern.edu/education/medical-school/departments/psychiatry/education-and-training/residency-program/wmh-concentration.html)\
 [Baylor Colege of Medicine General Psychiatry Residency (Women’s Mental Health Track)](https://www.bcm.edu/departments/psychiatry-and-behavioral-sciences/education/general-psychiatry-residency/tracks/womens-mental-health-track)\
-[UT Austin](https://uthealthaustin.org/clinics/mulva-clinic-for-the-neurosciences/womens-reproductive-mental-health)\\[University of Colorado (Women’s Reproductive Psychiatry Track](https://medschool.cuanschutz.edu/psychiatry/education/psychiatryresidency/researchclinicaltraining)\
+[UT Austin](https://uthealthaustin.org/clinics/mulva-clinic-for-the-neurosciences/womens-reproductive-mental-health)\
+[University of Colorado (Women’s Reproductive Psychiatry Track](https://medschool.cuanschutz.edu/psychiatry/education/psychiatryresidency/researchclinicaltraining)\
 [University of Utah (Women’s Mental Health Concentration)](https://medicine.utah.edu/psychiatry/residency/adult/tracks/women-track)\
 [University of New Mexico](https://hsc.unm.edu/medicine/departments/psychiatry/education/fellowships/)\
 [UCLA (Women’s Mental Health Concentration)](https://residency.semel.ucla.edu/concentrations/)\
