@@ -43,7 +43,7 @@ University of Iowa
 [UCLA (Women’s Mental Health Concentration)](https://residency.semel.ucla.edu/concentrations/)\
 [Stanford (Pathways Program)](https://med.stanford.edu/psychiatry/residents/general/learn.html#pathways)\
 [UCSF (Area of Distinction)](https://psychiatry.ucsf.edu/rtp/highlights)\
-[University of Washington](https://www.washington.edu/research/research-centers/perc-center-perinatal-mental-health-and-substance-use-education-research-and-clinical-consultation/)\
+[University of Washington](https://www.washington.edu/research/research-centers/perc-center-perinatal-mental-health-and-substance-use-education-research-and-clinical-consultation/)
 
 **WMH Fellowships**\
 PGY3/4 NCRP fellowship application typically due mid-April each year.\
