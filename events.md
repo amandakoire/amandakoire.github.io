@@ -4,11 +4,12 @@ aside: false
 ---
 **Upcoming events**
 
-Residency Panel- Thursday, September 12, at 7 PM ET\
-Description: Hear from current residents at UCLA, Penn, Montefiore, & Brigham and Women's about their residency experience, application and residency advice, and the reproductive psychiatry opportunities at their respective programs!
+Research Panel - Wednesday, November 20, at 5:30 PM ET\
+Description: Hear from leaders in perinatal mental health research (Dr. Cresta Jones, Dr. Sheehan Fisher, Dr. Tamar Gur, Dr. Ariadna Forray), regarding their career trajectories and areas of expertise. 
 
-Lecture: "Child Murder by Mothers: Mental Health and Motives" - Tuesday, September 17, at 7 PM ET\
-Speaker:  Dr. Susan Hatters Friedman, Resnick Professor of Forensic Psychiatry at Case Western Reserve University, past president of the American Academy of Psychiatry and the Law (AAPL)
+
+**RPT Journal Club**  - Wednesday, December 4, at 8 PM ET\
+Description: Join us for the inaugural RPT Journal Club, where we will discuss both classic and contemporary research articles important to the field of reproductive psychiatry. This session will be facilitated by  Amanda Koire MD, PhD, who is an RPT Co-Founder and serves as an attending psychiatrist in the Division of Women's Mental Health and Reproductive Psychiatry at Brigham and Women's Hospital. In this session we'll practice using the literature in real time to answer theoretical patient questions about zuranolone and brexanolone.
 
 **Past Events**
 
@@ -42,6 +43,12 @@ Lecture: **Dr. Madeleine Becker**, ACLP President, Professor of Psychiatry, Inte
 Lecture: **Dr. Diane Greene Foster, PhD & Dr. Antonia Biggs, PhD**, Authors of The Turnaway Study, "Implications of Dobbs V Women’s Health on Pregnant People’s Psychological, Health and Financial Wellbeing", **June 17 at 7 PM EST** [Recording](https://youtu.be/aWl0DikcGKU)
 
 Lecture: **Dr. Martha Zimmerman, PhD**, Assistant Professor, UMass Chan Medical School, "Perinatal Mood and Anxiety Disorders: The Perinatal Mental Health Care Pathway",  **July 17 at 7PM EST** [Recording](https://youtu.be/fSUkwK4XB8s)
+
+**September**\
+Residency Panel- Thursday, September 12, at 7 PM ET\
+Description: Hear from current residents at UCLA, Penn, Montefiore, & Brigham and Women's about their residency experience, application and residency advice, and the reproductive psychiatry opportunities at their respective programs!
+
+Lecture: **Dr. Susan Hatters Friedman**, Resnick Professor of Forensic Psychiatry at Case Western Reserve University, past president of the American Academy of Psychiatry and the Law (AAPL), "Child Murder by Mothers: Mental Health and Motives", **Tuesday, September 17, at 7 PM ET**
 
 **2023**
 
