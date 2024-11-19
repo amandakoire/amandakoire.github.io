@@ -4,11 +4,11 @@ aside: false
 ---
 **Upcoming events**
 
-**RPT Research Career Panel** - Wednesday, November 20, at 5:30 PM ET\
+**RPT Research Career Panel** - Wednesday, **November 20, at 5:30 PM ET**\
 Description: Hear from leaders in perinatal mental health research (Dr. Cresta Jones, Dr. Sheehan Fisher, Dr. Tamar Gur, Dr. Ariadna Forray), regarding their career trajectories and areas of expertise. 
 
 
-**RPT Journal Club**  - Wednesday, December 4, at 8 PM ET\
+**RPT Journal Club**  - Wednesday, **December 4, at 8 PM ET**\
 Description: Join us for the inaugural RPT Journal Club, where we will discuss both classic and contemporary research articles important to the field of reproductive psychiatry. This session will be facilitated by  Amanda Koire MD, PhD, who is an RPT Co-Founder and serves as an attending psychiatrist in the Division of Women's Mental Health and Reproductive Psychiatry at Brigham and Women's Hospital. In this session we'll practice using the literature in real time to answer theoretical patient questions about zuranolone and brexanolone.
 
 **Past Events**
