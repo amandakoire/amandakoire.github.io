@@ -4,7 +4,7 @@ aside: false
 ---
 **Upcoming events**
 
-Research Panel - Wednesday, November 20, at 5:30 PM ET\
+**RPT Research Career Panel** - Wednesday, November 20, at 5:30 PM ET\
 Description: Hear from leaders in perinatal mental health research (Dr. Cresta Jones, Dr. Sheehan Fisher, Dr. Tamar Gur, Dr. Ariadna Forray), regarding their career trajectories and areas of expertise. 
 
 
