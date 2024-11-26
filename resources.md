@@ -22,6 +22,7 @@ MGH Center for Women’s Mental Health [‘Essential Reads’](https://womensmen
 APA Online Learning Module on [Depression and Anxiety During Pregnancy and Postpartum](https://education.psychiatry.org/diweb/catalog/item/eid/C1600403?_ga=2.176933484.894100669.1642097960-945959711.1638928356)\
 NIMH Innovation Speaker Series: ['Addressing Social Determinants to Optimize Infant Brain Development'](https://www.youtube.com/watch?v=HfgKhibUsrw). Dr. Cynthia Rogers of Washington University, St. Louis, recorded 1/18/2022.\
 UNMC Psychiatry Grand Rounds: ['Integrated mental health care models in obstetrical care: lessons learned through research and clinical practice'](https://echo360.org/media/bb68c9f7-46a0-4b22-aba4-50586afa351c/public). Dr. Maria Muzik of UMichigan, recorded 11/10/21.\
+['The Science of Brain Fog at Menopause'](https://vimeo.com/ajievents/review/1018459122/8bed0afa00) Dr. Pauline Maki of University of Illinois at Chicago, recorded 11/21/24.\
 Developing Brain seminar series [recordings](https://developingbrainresearchlaboratory.org/00_Training_Past_Events.html)\
 Recommended reading list on ['Women, men, and LGBT mental health'](https://smile.amazon.com/ideas/amzn1.account.AEKBAGFDZAYNMMQXFBHEMSJL6Y7A/1J3ZQVO8F9QAH?ref=idea_share) curated by Dr. Francis Lu, MD, DLFAPA Kim Professor in Cultural Psychiatry, Emeritus UC Davis
 
@@ -62,7 +63,7 @@ Please contact mountsinairepropsychjc@gmail.com if you are interested in being c
 Connect a patient to a peer mentor through Postpartum Support International [here](https://www.postpartum.net/get-help/peer-mentor-program/)\
 MothertoBaby [fact sheets](https://mothertobaby.org/fact-sheets/) that answer frequently asked questions about many common exposures during pregnancy and breastfeeding, including medications, recreational substances, cosmetic treatments, health conditions, infections, vaccines, and more.\
 [Conversation starters](https://www.mcpapformoms.org/Docs/ConvoStarters_SB_Final.pdf) to help partners and family members to notice and start talking about possible postpartum depression.\ 
-Recommending gentle exercise postpartum? Share the link to ['Movin with Momma's'](https://med.fsu.edu/aim/video/aim-database?tab=7964&play=https%3A%2F%2Fwww.youtube.com%2Fembed%2FCYY8rDaryks), a babywearing dance series collaboration with the Orlando Ballet, created and led by Repro Psych Trainees member Aanchal Shah (FSU COM '25)
+Recommending gentle exercise postpartum? Share the link to ['Movin with Mommas'](https://med.fsu.edu/aim/video/aim-database?tab=7964&play=https%3A%2F%2Fwww.youtube.com%2Fembed%2FCYY8rDaryks), a babywearing dance series collaboration with the Orlando Ballet, created and led by Repro Psych Trainees member Aanchal Shah (FSU COM '25)
 
 **National Organizations:**\
 [Marce of North America (MONA)](https://marcenortham.com/)\
