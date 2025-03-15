@@ -4,12 +4,13 @@ aside: false
 ---
 **Upcoming events**
 
-**May**
+**May**\
 **RPT Journal Club with Dr. Scialli**. Dr. Scialli is a specialist in reproductive and developmental toxicology and in obstetrics and gynecology, Clinical Professor of Obstetrics and Gynecology at George Washington University School of Medicine and director of Reproductive Toxicology Center, a non-profit foundation in Washington, D.C., which maintains Reprotox®. **May 12th, 7:30pm EST**
 
 **Past Events**
 
 **2025**
+
 **January**\
 Lecture: **Dr. Rachel Shmuts, DO**, Reproductive Psychiatrist, "The COVID-19 pandemic and its impact on pregnancy, postpartum, and early parental mental health", **January 27th at 7:00 PM EST**
 
