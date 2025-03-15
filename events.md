@@ -4,14 +4,20 @@ aside: false
 ---
 **Upcoming events**
 
-**RPT Research Career Panel** - Wednesday, **November 20, at 5:30 PM ET**\
-Description: Hear from leaders in perinatal mental health research (Dr. Cresta Jones, Dr. Sheehan Fisher, Dr. Tamar Gur, Dr. Ariadna Forray), regarding their career trajectories and areas of expertise. 
-
-
-**RPT Journal Club**  - Wednesday, **December 4, at 8 PM ET**\
-Description: Join us for the inaugural RPT Journal Club, where we will discuss both classic and contemporary research articles important to the field of reproductive psychiatry. This session will be facilitated by  Amanda Koire MD, PhD, who is an RPT Co-Founder and serves as an attending psychiatrist in the Division of Women's Mental Health and Reproductive Psychiatry at Brigham and Women's Hospital. In this session we'll practice using the literature in real time to answer theoretical patient questions about zuranolone and brexanolone.
+**May**
+**RPT Journal Club with Dr. Scialli**. Dr. Scialli is a specialist in reproductive and developmental toxicology and in obstetrics and gynecology, Clinical Professor of Obstetrics and Gynecology at George Washington University School of Medicine and director of Reproductive Toxicology Center, a non-profit foundation in Washington, D.C., which maintains Reprotox®. **May 12th, 7:30pm EST**
 
 **Past Events**
+
+**2025**
+**January**\
+Lecture: **Dr. Rachel Shmuts, DO**, Reproductive Psychiatrist, "The COVID-19 pandemic and its impact on pregnancy, postpartum, and early parental mental health", **January 27th at 7:00 PM EST**
+
+**February**\
+Lecture: **Dr. Catherine Birndorf, MD**, Co-Founder, CEO, and Medical Director of The Motherhood Center of New York, "Career Paths in Reproductive Psychiatry", **February 18th at 7:00 PM EST**
+
+**March**\
+Spring Fellowship Panel. **Thursday, 3/13/2025 at 7:00 PM EST**, This panel event featured reproductive psychiatry and women's mental health-focused consult-liaison psychiatry fellows discussing their journey and providing advice for trainees
 
 **2024**
 
@@ -49,6 +55,12 @@ Residency Panel- Thursday, September 12, at 7 PM ET\
 Description: Hear from current residents at UCLA, Penn, Montefiore, & Brigham and Women's about their residency experience, application and residency advice, and the reproductive psychiatry opportunities at their respective programs!
 
 Lecture: **Dr. Susan Hatters Friedman**, Resnick Professor of Forensic Psychiatry at Case Western Reserve University, past president of the American Academy of Psychiatry and the Law (AAPL), "Child Murder by Mothers: Mental Health and Motives", **Tuesday, September 17, at 7 PM ET**
+
+**RPT Research Career Panel** - Wednesday, **November 20, at 5:30 PM ET**\
+Description: Hear from leaders in perinatal mental health research (Dr. Cresta Jones, Dr. Sheehan Fisher, Dr. Tamar Gur, Dr. Ariadna Forray), regarding their career trajectories and areas of expertise. 
+
+**RPT Journal Club**  - Wednesday, **December 4, at 8 PM ET**\
+Description: Join us for the inaugural RPT Journal Club, where we will discuss both classic and contemporary research articles important to the field of reproductive psychiatry. This session will be facilitated by  Amanda Koire MD, PhD, who is an RPT Co-Founder and serves as an attending psychiatrist in the Division of Women's Mental Health and Reproductive Psychiatry at Brigham and Women's Hospital. In this session we'll practice using the literature in real time to answer theoretical patient questions about zuranolone and brexanolone.
 
 **2023**
 
